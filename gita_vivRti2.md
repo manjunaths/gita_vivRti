@@ -2006,3 +2006,302 @@ Understand that the description, done with an intolerance for the excellence of 
 **रा० वि० अस्माकान्त्वति पाण्डवव्यावर्तकस्तु शब्दः ।**
 
 (In the word) "asmākān-tu" (but on our side), the word "tu" (but) serves to exclude the Pāṇḍavas.
+
+**अस्माकं सम्बन्धिनो विशिष्टाः-बलिष्ठाः-प्रम सैन्यस्य नायकाः नेतारो ये तान्निबोध-बुध्यस्य जानीहि ।**
+
+Now, know and understand those who are my distinguished, mighty army commanders and leaders.
+**ते-तव सम्यग्ज्ञानार्थं तान्ब्रवीमि ।**
+
+I am telling you about them for your full knowledge.
+**द्विजोत्तमेत्याचार्यसम्बोधनं ॥ ७ ॥**
+
+The address "O best of the twice-born" is a designation for the teacher. (7)
+**
+
+**त्रि० वि० ॥ अथ स्वेषामन्तरंगत्वाभावं द्योतयितुमाह ॥**
+
+*Trivikrama's commentary:* Now, to indicate that they are not intimately connected (to the Supreme), he says:
+
+**अस्माकमिति ॥**
+
+"our"...
+
+**अध्यात्मार्थे ॥**
+
+(In the spiritual sense:)
+
+**हे द्विजोत्तम-द्विजानां सनकादीनां सकाशादुत्तम रुद्र ?**
+
+O best of the twice-born (Dwijottama) - [meaning] the best, Rudra, from among the twice-born like Sanaka, etc.?
+
+**अस्माकं मध्ये ये तु-विशिष्टा-बहुश्रेष्ठाः, तु विशब्दस्य बहुनामसु पाठात् ।**
+
+But those who are distinguished—very excellent—among us; [the particle] 'tu' [means 'but'] based on its reading in the list of many names.
+
+**तान्निबोध-जानी हि ।**
+
+Know them.
+
+**ये च मम सैन्यस्य नायकाः प्रणेतारः, तान् संज्ञार्थं-नामार्थमुद्दिश्य ब्रवीमि ॥**
+
+And those who are the leaders, the guides of my army, them I am naming for the purpose of identification.
+
+**अंशार्थे ।**
+
+(In the sense of partial manifestations:)
+
+**हे द्विजोत्तम द्वे शब्दार्थतत्वे जानंति ते द्विजाः कवयः "जाज्ञाने" धातूनामनेकार्थत्वात्, "औणादिकोंत्यलोपोवा", तेषामुत्तम शुक्र "कवीनामुशना कवि" रित्युक्ते ।:**
+
+O best of the twice-born; those seers who know the true nature of the two (sound and meaning) are the twice-born poets, from the root "jñā" which has many meanings, or by the grammatical rule "auṇādiko'ntyalopo vā"; the best among them is Śukra (the preceptor of the demons), as it is said "Uśanā is the poet among poets".
+
+**तुविशिष्टः-तुना-असुरावेशरूपविशेषेण विशिष्टाः "तुशब्दस्तु विशेषे स्यात्स्वसिद्धान्तेऽवधारणे" इत्युक्तेः,**
+
+But they are distinguished—distinguished by a special feature, which is the possession by demons; for the word 'tu' is used to express a particularity or affirmation of one's own conclusion.
+
+**संज्ञार्थ-सम्यग्ज्ञानार्थ ॥**
+
+For the purpose of naming—for the purpose of full knowledge.
+
+**प्रसिद्धार्थे हे द्विजोत्तम-ब्राह्मणोत्तम-द्रोण?**
+
+(In the well-known sense:) O best of the twice-born, O best of Brahmins, Droṇa?
+
+**विशिष्ट शब्दस्य-शिष्टविरोधित्वार्थं मनसि निधाय बहिः श्रेष्ठत्वरूपार्थ दर्शयन्द्वर्थकं तं शब्दं प्रायुंक्त ।** 
+
+Having in mind that the word "viśiṣṭa" implies opposition to the virtuous (śiṣṭa), he uses that word which has a double meaning, showing an external meaning of excellence.
+
+**भवान्भीष्मश्च कर्णश्च कृपश्च सामतिंजयः ।**
+
+You yourself, and Bhīṣma, and Karṇa, and Kṛpa, and the ever-victorious in battle,
+
+**अश्वत्थामा विकर्णश्च सौमदत्तिस्तथैव च ॥ ८ ॥**
+
+Aśvatthāmā, Vikarṇa, and also Saumadatti (Bhūriśravas). (8)
+
+**ये सैन्यस्य नायकाः ममेति संज्ञार्थं तु मदीया इति संज्ञारूपार्थमेव प्राप्ताइति शेषः, नान्ततो मद्धितकारिण इति भावः।** 
+
+[Those who are the leaders of the army, (he says) "my" for the purpose of naming; but the implied meaning is that they are only nominally mine; they are not ultimately for my benefit.
+
+**तान्ब्रवीमत्यिन्वयः ॥ ७ ॥** 
+
+This is the connection of the words "I am telling them." (7)
+
+**रा० वि० तानाह द्वाभ्यां ॥ भवानित्यादिना ॥** 
+
+*Rāmānuja's commentary:* He names them with two verses, beginning with "You yourself..."
+
+**समितिंजयः युद्धे जयशीलः सौमदत्तिः सोमदत्तसुतो भूरिश्रवाः ॥ ८ ॥** 
+
+"Samitiñjaya" means one who is habitually victorious in battle. "Saumadatti" is the son of Somadatta, Bhūriśravas. (8)
+
+**त्रि०वि० प्रतिज्ञातानाह ॥ भवानिति ॥** 
+
+*Trivikrama's commentary:* He states those who were promised (to be named), beginning with "You yourself...".
+
+**अध्यात्मार्थ-भवान् "भ उररीकरण"इति धातोः, भं भयांगीकारः "नामैकदेशग्रहणे नामग्रहणमिति न्यायाद्वा-भं-भयं, तद्वान् "भयात्कंस" इत्युक्तेः,** 
+
+(In the spiritual sense:) "You" (Bhavān) - from the root "bhū" meaning to become; "bhaṃ" is the acceptance of fear, or by the maxim that citing part of a word implies the whole word, "bhaṃ" means fear; the possessor of that, as it is said "from fear, Kaṃsa".
+
+**कंसस्य कालनेमित्वात्, तस्य कामाभिमानित्वाद्भवान्कामाभिमानी कालनेमिः "असुरा अशुभेष्वेव कामादेरभिमानिनः ॥** 
+
+Because Kaṃsa is Kālanemi, and he presides over desire, therefore "you" are the presiding deity of desire, Kālanemi; for "demons are the presiding deities of inauspicious things like desire."
+
+**तत्र कामः कालनेमि"रिति गीतातात्पर्ये ब्रह्मतर्कोक्तेः ।** 
+
+"Among them, desire is Kālanemi" as stated in the Brahma Tarka commentary on the Gītā.
+
+**भीष्मः भीषयतीति व्युत्पत्या क्रोधा-भिमानी खरः । "खरः क्रोधस्त्वया दृष्ट" इत्युक्तेः ।** 
+
+"Bhīṣma" - by derivation means "he who terrifies"; the presiding deity of anger is Khara. As it is said, "Khara is anger, as seen by you."
+
+**यद्वा-भवान्-कामाभिमानी मधुः भीष्मः क्रोधाभिमानी कैटभः, तथा हरिवंशोक्तेः ।** 
+
+Alternatively, "you" are the presiding deity of desire, Madhu; "Bhīṣma" is the presiding deity of anger, Kaiṭabha; as stated in the Harivaṃśa.
+
+**कर्णः-केन-सुखेन ऋण्यते-ऊनीक्रियते स कर्ण:-मत्सराभिमानी, वेनांशः पौण्ड्रकः, मत्सरिणएव परोत्कर्षदर्शनेन हि सुखाभावः "एवं मत्सरिणं हत्वा पौंड्रकं ससखं हरि" रिति भागवतोक्तेः ।**
+
+Karna is he who is diminished (or made less) by whose happiness? That Karna is arrogant with envy; he is Pundaraka, who is an aspect of the demon Vena, for indeed, an envious person experiences an absence of happiness upon seeing the excellence of others, as stated in the Bhagavata: "Thus, Hari killed the envious Pundaraka along with his friend."
+
+**"पापोवेनः पौण्ड्रकोवासुदेवः" इति च ताप्तनिर्णयोक्तेश्च ।**
+
+And as stated in the Tapta-Nirnaya: "The sinful Vena is Pundaraka Vasudeva."
+
+**कृपः "कृतिछेदने" इति धातोः, कृत्तं-छिन्नं पाति-रक्षति सतथा ।**
+
+Kripa (is from the root) 'kṛti-cchedane' (meaning to cut); he protects that which is cut or severed in that manner.
+
+**कृतशब्दोपपदात्पातेः कर्तरीडः ।**
+
+(The word is formed) with the affix 'ḍa' in the agent sense, from the root 'pā' (to protect) with the preverb 'kṛta'.
+
+**उपपदान्त्यलोपश्च, मोहाभिमानी डिम्भकः, मोहितएव हि नष्टरक्षणे यतते ।**
+
+And there is elision of the final letter of the preverb. He is Dimbhaka, arrogant with delusion, for indeed, one who is deluded strives to protect that which is already lost.
+
+**समितिञ्जयः-मित्या-मानेन सहितः, समितिः-मानी, तं जयतीति स तथा महामानी निकुम्भः, अत्रालुक् अश्वत्थामा-नश्वयान्ति-नजानान्त ते अश्वाः "डुहोश्चिगतिवृध्यो" "र्गत्यर्थानां ज्ञानार्थत्वाच्च"-अज्ञानिन इत्यर्थः, तेषु तिष्ठति सोऽश्वत्थः-अहंकारः "ष्टागतिनिवृत्तौ, सुपीति कः, पृषोदरादिः, ततोमतुबर्थे आतोमनिन्" अहंकाराभिमानी विप्रचित्तिः ।**
+
+Samitinjayah is he who is accompanied by mita (measured or pride); he is Samiti (proud), and he conquers that (pride), thus he is the greatly proud Nikumbha. Here, by the rule 'aluk', Ashvatthama: (from) 'naśvayanti' – those horses do not know ('na jānānta') – meaning the ignorant, as (per the rules) "ḍuhościgativṛddhyo" and "gatyarthānāṃ jñānārthatvācca" (roots of motion can imply knowledge); in them resides that Ashvattha (the sacred fig tree) – egoism (from the rule) "ṣṭāgatinivṛttau" (and by the rule) "supīti kaḥ" (and the rule) "pṛṣodarādiḥ" (and the rule) "tatomatubarthe ātomanin" – he is Vipracitti, who is arrogant with egoism.
+
+**विकर्णः-विशेषेण करोति स्वसत्कर्म प्रसिद्धमिति "कृवृपृ इत्यादिना नन्" दम्भाभिमानी वज्रनाभः असुरः ।**
+
+Vikarnah is he who specially (viśeṣeṇa) makes (karoti) his own good deeds famous; by the rule "kṛvṛpṛ ityādina nan" (the affix 'nan' is used after roots like kṛ); he is the demon Vajranabha, who is arrogant with hypocrisy.
+
+**सौमदत्तिः सुत्तरां मदः सुमदः सएव सौमदः तं तनोतीति सौमदत्तिः "पृषोदरादित्यादंते द्वित्तता" मदाभिमानी कुंजरः "कुंजरोमदउच्यते" इत्युक्तेः ॥**
+
+Somadattih: the excellent (su) intoxication (madaḥ) is sumadaḥ; that itself is saumadaḥ; he extends (tanoti) that, hence he is Saumadatti (by the rule) "pṛṣodarādityādante dvitvatā" (doubling of the consonant in the middle); he is Kunjara, who is arrogant with intoxication, as stated: "kujaro mada ucyate" (Kunjara is said to mean intoxication).
+
+**॥ अंशार्थे-भवानिति द्रोणं प्रति वचनात् बृहस्पतिः "द्रोणोबृहस्पतिः प्रोक्त" इत्युक्तेः ।**
+
+In the sense of being a portion (amsa): The address "Bhavan" (you, respected one) to Drona indicates he is Brihaspati, as stated: "droṇo bṛhaspatiḥ prokta" (Drona is declared to be Brihaspati).
+
+**भीष्मः द्युनामा वसुः "भीष्मस्तु द्युवसुर्नामे"त्युक्तेः ।**
+
+Bhishma is the Vasu named Dyu, as stated: "bhīṣmastu dyuvasurnāme" (Bhishma is indeed named Dyuvasu).
+
+**कर्णः सूर्यस्यांशः सहस्रवर्माख्यासुरावेशी "कर्णः सूर्यः समाख्यातः संनिधानयुतोहरेः । सहस्त्रवर्मनाम्नाऽपि आविष्टोनर केणचे"त्युक्तेः ।**
+
+Karna is a portion of the sun, possessed by the demon named Sahasravarma, as stated: "karṇaḥ sūryaḥ samākhyātaḥ sannidhānayuto hareḥ, sahasravarmanāmnāpi āviṣṭonara keṇace" (Karna is declared to be the sun, associated with the presence of Hari, but also possessed by one named Sahasravarma).
+
+**कृपः-विष्कम्भो-रुद्रः "कृपाचार्यः पुरा प्रोक्तो विष्कंभो नाम रुद्रक" इत्युक्तेः ।**
+
+Kripa is Vishkambha (a form of) Rudra, as stated: "kṛpācāryaḥ purā prokto viṣkambho nāma rudraka" (The teacher Kripa was formerly declared to be the Rudra named Vishkambha).
+
+**ननु ते देवांशा एव कथं कलिना स्वीयत्वेनोच्यन्ते इत्यत उक्तं 'समितिञ्जय इति' "मिनु हिंसायामिति"धातोर्मितिं-मृत्युं जयन्ति ते असुराः तैः सहितत्वाद्युक्तमुक्तमित्यर्थः ।**
+
+Now, if they are portions of the gods, how are they claimed as his own by Kali? To explain this, it is said 'samitiñjaya iti': from the root "minu hiṃsāyām" (minu means to hurt), they (the asuras) conquer miti (death); thus it is appropriate because they are associated with them (the asuras), this is the meaning.
+
+**एकवचनोपि समितिञ्जयशब्दः पार्थक्येन सर्वत्र योज्यइति सूचयितुं समुच्चयार्थकाश्चशब्दाः ।**
+
+Even though the word 'samitiñjaya' is in the singular, it is to be applied separately to all, to indicate this, the words 'ca' (and) are used for conjunction.
+
+**अश्वथ्थामा-रुद्रः "अश्व्थामा नीलकण्ठ" इत्युक्तेः ।**
+
+Ashvatthama is Rudra, as stated: "aśvathāmā nīlakaṇṭha" (Ashvatthama is Nilakantha [Rudra]).
+
+**विकर्णः अतिकायासुरः "विकर्णोप्यतिकायक" इत्युक्तेः ।**
+
+Vikarna is the asura Atikaya, as stated: "vikarṇopyatikāyaka" (Vikarna is also Atikaya).
+
+**च शब्दस्त्वर्थे विशेषद्योतकः, स्वभावादेव दुष्टः नावेशतइति ।**
+
+The word 'ca' (and) here is specifically indicative (of this meaning): that he is evil by his very nature, not due to possession.
+
+**सौमदत्तिः-भूरिश्रवाः-अहिर्बुध्न्यः तथैव तप्तर्यनिर्णयोक्तेः ।**
+
+Saumadatti is Bhurishrava (and) Ahirbudhnya, similarly as stated in the Tapta-Nirnaya.
+
+**तथा द्रोणादिवदावेशतएव, चः समुच्चये, भूरिश्रवा अपि मदीयइति भावः ॥**
+
+And like Drona etc., he is indeed possessed; the 'ca' is for conjunction, the idea is that Bhurishrava is also mine (on my side).
+
+**प्रसिद्धार्थे ॥-यमभिमुखीकृत्योच्यते तद्दाक्षिण्यमधिक्रमित्यतो द्रोणं प्रत्यादौ भवानित्युक्तिः ।**
+
+In the well-known sense: It is spoken turning towards him (Yudhishthira), (showing) that courtesy supersedes (protocol); therefore, Drona is addressed first with "Bhavan" (you, respected sir).
+
+**सैन्यनायककथनप्रसंगे मम सेनाधिपतित्वेपि द्रोणास्यादौ ग्रहणे व्यर्थोममायास इति भीष्मोमन्येतेत्याशंक्य तदुत्तरमेव भीष्मइत्युक्तम् ।**
+
+In the context of stating the army leaders, even though I (Duryodhana) am the commander of the army, if Drona is mentioned first, my effort is useless, thus Bhishma thinks; anticipating this doubt, Bhishma's name is mentioned immediately after (Drona's).
+
+**च शब्देन ब्राह्मणत्वात्तदग्रोक्तिरिति सूचितम् ।**
+
+And by the word 'cha' (and), it is indicated that he (Drona) spoke the name of Karna first, because of his Brahmana-ness (status as a Brahmin).
+
+**कर्णभीष्मयोर्वैमनस्याद्भीष्मनामग्रहणेन विवर्णवदनं कर्ण दृष्ट्वा अव्यवधानेनाग्रे कर्णइत्युवाच ।**
+
+Seeing Karna's face become pale due to the enmity between Karna and Bhishma and because of the mention of Bhishma's name first, he (Drona) then immediately said 'Karna' next.
+
+**तथापि तन्मानसीं प्रीतिमदृष्ट्वा अनन्तरं कृपोपन्यासः ।**
+
+Even then, not seeing that mental pleasure (on Karna's face), he mentioned Kripa next.
+
+**अनेन भीष्मस्य ब्राह्मणान्ते ग्रहणात् कर्णस्य तु ब्राह्मणादौ ग्रहणात् भीष्मापेक्षयापि कर्णस्य महाविश्वासपात्रत्वं ध्वनितम् ।**
+
+By this, because Bhishma is taken at the end of the Brahmanas and Karna is taken at the beginning of the Brahmanas, it is implied that Karna is an object of great trust even more than Bhishma.
+
+**स्वापेक्षयाऽऽदौ कर्णस्य ग्रहणाद्रुष्टं कृपमवेक्ष्य सर्वेषामविशेषितत्वेपि तमेव समितिञ्जयपदेन विशेषितवान् ।**
+
+Seeing Kripa, who was angry because Karna was chosen before himself (Kripa), and even though all were without specific praise, he (Drona) specifically praised him (Kripa) alone with the epithet 'victorious in assembly'.
+
+**गुरुपुत्रत्वेन ब्राह्मणत्वेन महाशौर्यणमित्रत्वेन चादौ स्वनाम्नोग्रात्द्यत्वेऽपि तदभावमालोक्य सञ्जतोपेक्षमश्वथ्थामानं स्वभ्रात्रादौ जग्राह ।**
+
+Even though his own son Ashvatthama was qualified to be named first due to being a teacher's son, a Brahmin, and possessing great valor and friendship, upon seeing his lack of (positive) reaction (to not being named first), and seeing his indifference, he (Drona) took him after his own brother (i.e., named him later).
+
+**अनेन बन्धोः सकाशादपि तदाधिक्यं निरूपितम् ।**
+
+By this, his (Ashvatthama's) superiority, even from (the perspective of) a relative, is established.
+
+**बात्द्यानामेव ग्रहणात् स्वभ्रातरोयुद्धविमुखा भवेयुरित्यतोऽश्वत्थामान्तेच भ्रातृग्रहणम् 。**
+
+Because only the competent were chosen, (he thought) lest his own brothers become averse to fighting; therefore, Ashvatthama was taken at the end and the brother (Kripa) was taken (before him).
+
+**तत्रापि दुःशासन । दीन्विहाय विकर्णस्यैव ग्रहणे निमित्तन्तु द्यूतकाले विरुद्धभाषितत्वं ज्ञेयम् ।**
+
+Even among them, Dushasana. The reason for choosing Vikarna, leaving out Duhshasana, should be understood as (Vikarna's) speaking in opposition during the dice game.
+
+**अनेन तद्ब्रहणाभावे तथा भाषितत्वात्तान्प्रति गच्छेदिति भीर्दृश्यते ।**
+
+By this, the fear is seen that if he (Vikarna) is not chosen, he might go over to them (the Pandavas) because he had spoken thus (in their support).
+
+**स्वसाक्षाद्धातृग्रहणेन दूरस्थस्य महावीरस्य भूरिश्रवसः वैमनस्यमाशंक्य तथैवेत्युक्तम् ।**
+
+Fearing the displeasure of the great hero Bhurishrava, who was at a distance, by taking his own direct brother (Shala), he (Duryodhana) said "so be it" (i.e., included Bhurishrava later in a similar way).
+
+**साक्षाद्भ्रातृसमानइत्यर्थः, न तु दूरस्थत्वेन सोदरन्यूनइति भावः ॥ ८ ॥**
+
+The meaning is that he (Bhurishrava) is equal to a direct brother, the sentiment being that he is not inferior to a blood brother just because he is distant.
+
+**अन्ये च बहवः शूरा मदर्थे त्यक्तजीविताः ।**
+
+And many other brave warriors, who have abandoned their lives for my sake.
+
+**नानाशस्त्रप्रहरणाः सर्वे युद्धविशारदाः ॥ ९ ॥**
+
+They are armed with various weapons and are all skilled in battle.
+
+**रा० वि० शूरा एवेति वा मदर्थएवेति वाऽवधारणान्वयः ।**
+
+*(Commentary)* The connection of emphasis is either "they are indeed brave" or "for my sake indeed".
+
+**त्यक्तजीविताः-प्राणत्यागे कृतनिश्चया इत्यर्थः ।**
+
+"Who have abandoned their lives" means those who have made a resolve to give up their lives.
+
+**प्रर्‍हीयंते एभिरिति प्रहरणानि अस्त्राणि । नानाविधानि शस्त्राणि प्रहरणानिच येषांते नानाशस्त्रप्रहरणाः ।**
+
+"Praharana" means weapons by which others are struck. "Nana-shastra-praharana" means those for whom the weapons and instruments of attack are of various kinds.
+
+**युद्धविशारदाः युद्धकुशलाः ॥९॥**
+
+"Skilled in battle" means adept in warfare.
+
+**त्रि० वि० अन्येषां स्वनामाग्रहणेन खिन्नत्वं समीक्ष्य तानपि शंसति ॥ अन्ये चेति ॥**
+
+*(Commentary)* Seeing the dejection of the others due to their names not being taken, he praises them too with the words "and others...".
+
+** ॥ अध्यात्मार्थे-अन्ये-नमुचिपाकेल्वलादयः शूराः त्यक्तजीविता आसन् ।**
+
+*(Allegorical meaning)* The "others" are Namuchi, Paka, Ilvala, etc., who were brave and had abandoned their lives (in past battles).
+
+**ये च मदर्थे अत्यक्तजीविताः धृतदेहाभिमानाः राहुविरोचनमन्देहादयः ।**
+
+And those who, for my sake (for the sake of the demon king), have *not* abandoned their lives, who held onto body-consciousness, like Rahu, Virochana, Mandeha, etc.
+
+**ते च नानाशस्त्रप्रहरणाः- अनेकशस्त्रप्रहारशीलाः ।**
+
+And they are "armed with various weapons" - accustomed to striking with many weapons.
+
+**न केवलं तथा अपि तु सर्वेपि युद्धे विशारदाः-कुशलाः ॥ ॥ अंशार्थे ॥**
+
+Not only that, but all are also skilled, adept in battle. (Partial meaning).
+
+**शल्यदुःशासनजयद्रथाद्याविष्ट संल्हादेन्द्रजित्कालकेयादयो असुराः मदर्थे-मदिष्ठार्थे त्यक्तजीविताः, अत्यक्तजीविताः-धृतमनुष्यदेहा वा ॥**
+
+(Possessed by demons like) Shalya, Duhshasana, Jayadratha, etc., the demons Sanhlada, Indrajit, Kalakeya, etc., for my sake - for the sake of the most important (demon) purpose - have abandoned their lives, or have *not* abandoned their lives - maintaining human bodies.
+
+** ॥ प्रसिद्धार्थ ॥   ॥ अन्ये-जरासन्धैकलव्य पौण्ड्रकादयः, त्यक्तजीविताः ॥**
+
+*(Well-known meaning)* The "others" are Jarasandha, Ekalavya, Paundrika, etc., who had abandoned their lives (i.e., were dead).
+
+**ये चात्यक्तजीविताः शल्यादयः तेऽपि शूराएव ।**
+
+And those like Shalya and others who have *not* abandoned their lives, they too are indeed brave.

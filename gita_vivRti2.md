@@ -2278,7 +2278,7 @@ They are armed with various weapons and are all skilled in battle.
 
 *(Commentary)* Seeing the dejection of the others due to their names not being taken, he praises them too with the words "and others...".
 
-** ॥ अध्यात्मार्थे-अन्ये-नमुचिपाकेल्वलादयः शूराः त्यक्तजीविता आसन् ।**
+**॥ अध्यात्मार्थे-अन्ये-नमुचिपाकेल्वलादयः शूराः त्यक्तजीविता आसन् ।**
 
 *(Allegorical meaning)* The "others" are Namuchi, Paka, Ilvala, etc., who were brave and had abandoned their lives (in past battles).
 
@@ -2298,10 +2298,295 @@ Not only that, but all are also skilled, adept in battle. (Partial meaning).
 
 (Possessed by demons like) Shalya, Duhshasana, Jayadratha, etc., the demons Sanhlada, Indrajit, Kalakeya, etc., for my sake - for the sake of the most important (demon) purpose - have abandoned their lives, or have *not* abandoned their lives - maintaining human bodies.
 
-** ॥ प्रसिद्धार्थ ॥   ॥ अन्ये-जरासन्धैकलव्य पौण्ड्रकादयः, त्यक्तजीविताः ॥**
+**॥ प्रसिद्धार्थ ॥   ॥ अन्ये-जरासन्धैकलव्य पौण्ड्रकादयः, त्यक्तजीविताः ॥**
 
 *(Well-known meaning)* The "others" are Jarasandha, Ekalavya, Paundrika, etc., who had abandoned their lives (i.e., were dead).
 
 **ये चात्यक्तजीविताः शल्यादयः तेऽपि शूराएव ।**
 
 And those like Shalya and others who have *not* abandoned their lives, they too are indeed brave.
+
+**अत्यक्तेत्यत्राकारप्रश्लेषाभावे क्तप्रत्ययस्यातीतार्थकत्वेन पूर्वं मृतानामिदानीं योत्धृत्वासम्भवात् । यद्वा जीवितशब्देन तदाशा लक्ष्या ॥ ९ ॥**
+
+In the word "atyakta" (not abandoned), because there is no coalescence (or suggestion) of the letter 'ā' (which would change the meaning), and because the suffix '-kta' has a past sense, those who died previously cannot now be possible combatants. Alternatively, by the word "jīvita" (living), that hope (of their being alive/combatants) is indicated. || 9 ||
+
+**रा० वि० दलद्वये बलिष्ठपरिगणने पांडवविजये मम संदेहोऽस्ति । ततो भवदादयः सर्वे बहुसन्नद्धा भवंत्विति भावेनाह ॥ अपर्याप्तमिति ॥**
+
+In the Rāmānuja Vidyā: "Regarding the counting of the stronger party between the two armies, I have a doubt about the Pandavas' victory. Therefore, may all of you, starting with you (Duryodhana), be well-prepared." With this intent, he says "aparyāptam" (it is insufficient).
+
+**सेनापतिभूतभीष्माभिरक्षितं अस्माकं तत् प्रागुक्तबलिष्ठोपेतं बलं अपर्याप्तं-पांडवजये न समर्थ प्रतीयते। भीमाभिरक्षितमिदं पांडवानां बलं तु पर्याप्तं-अस्मद्विजये शक्तं प्रतीयते ॥ १० ॥**
+
+That army of ours, which is protected by Bhīṣma, who has been made the commander, and which is equipped with the aforementioned strong warriors, is aparyāptam (insufficient/incapable)—it does not seem capable of achieving victory over the Pandavas. However, this army of the Pandavas, protected by Bhīma, is paryāptam (sufficient/capable)—it seems powerful enough to achieve victory over us. || 10 ||
+
+**नि० वि० प्रशंसारूपसाम्ना सेनापत्यदानेन च भीष्मानुकूल्यं सम्पादितं, इदानीं भेदे-नापि सम्पादयन् तद्धोषजननायाह ॥ अपर्याप्तमिति ॥**
+
+In the Nīlakaṇṭha Vidyā: Having secured Bhīṣma's favor through conciliation in the form of praise and by giving him the commandership, now, also creating dissension, he (Duryodhana) says "aparyāptam" to generate an outcry from them (the Kauravas).
+
+**अध्यात्मार्थे ॥ ॥ अत्र तदित्यव्ययम् तंत्रार्थे तदुभयपक्षमध्यइत्यर्थः । असन्निकृष्टपरामर्शकस्य तस्य सन्निकृष्टपरामर्शकत्वायोगात् । अस्माकं बलं-सैन्यं भीष्माभिरक्षितमिति हेतुगर्भविशेषणम् । देवासुरेषु साम्याद्वर्तमानेन भीष्मेण क्रोधेन तदभिमानिनेति यावत् अभिरक्षितत्वादित्यर्थः । अपर्याप्तं-शत्रूणां जये अलं न भवेत् । यद्वा-परितः-**
+
+In the Adhyātma interpretation: Here, the word 'tat' is an indeclinable used in the sense of 'there', meaning 'in the midst of both those parties'. This is because that (word 'tat'), which refers to something not nearby, cannot logically refer to something nearby. 'Our army, protected by Bhīṣma' is a description containing the reason. It means that because it is protected by Bhīṣma, who, due to his impartiality between the Devas and Asuras, is filled with anger and is a well-wisher for them (the Pandavas). Aparyāptam means it is not adequate for conquering the enemies. Or, it means 'not attained on all sides'...
+
+**अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितं । पर्याप्तं त्विदमेतेषां बलं भीमाभिरक्षितं ॥ १० ॥**
+
+Insufficient is that our army, protected by Bhīṣma. But sufficient is this army of theirs, protected by Bhīma. || 10 ||
+
+**सर्वतः आप्तं-हितकारी नास्ति । अथवा परः-परमात्मा अस्त्यस्मिन्निति परि आप्तं च पर्याप्तं, तद्विरुद्धमपर्याप्तम् विष्णुरहितम्, अनाप्तं चेत्यर्थः । तेषां देवानां तु बलं भीमेन-पूर्णज्ञानिना प्राणेन अभिरक्षितत्वात् । अत्राप्यस्माकमित्यावर्त्यं । दमे-अस्मन्निग्रहे, पर्याप्तं शक्तं । ज्ञानित्वस्येकपक्षएव वर्तमानत्वादिति भावः । अतइति शेषः । इ-आश्चर्यं "इ विचित्रे स्मरे पुमानिति" यादवः । इदमेत-च्छब्दाभ्यां दूरस्थसैन्यतत्पतीनां परामर्शायोगादियमेव योजना युक्ता । परि-विष्णुसहितं आप्तं चेत्ति वा ॥**
+
+...it is not reached/beneficial from all sides. Or, paryāptam means that in which the Supreme Lord (paraḥ) exists, i.e., reached/obtained by Viṣṇu (pari-āptaṃ). Its opposite is aparyāptam, meaning devoid of Viṣṇu, and not obtained. However, the army of those Devas (Pandavas), because it is protected by Bhīma—the full-knower, the (very) life-force (of Viṣṇu)... Here too, 'our' is to be supplied. In dama—in curbing us, it is paryāptam (capable). The idea is that the quality of being a knower exists only on one side. Therefore... 'I' expresses wonder, as in the quote "i is used for wonder and remembrance" from Yādava. Since the words 'idam' (this) and 'etat' (this) cannot logically refer to the army and its leaders who are at a distance, this very interpretation is appropriate. Or, paryāptam means obtained and accompanied by Viṣṇu.
+
+**अंशार्थे ॥ भीष्मस्य वस्वंशत्वेन तत्पक्षीयत्वादिति भावः । भीमस्यांशावेशाभ्यामुभाभ्यामप्यस्मत्पक्षानंगीकारादिति च ॥**
+
+In the Aṃśa interpretation: The meaning is that because Bhīṣma, being an aṃśa (portion) of a Vasu, is partial to their side (the Pandavas). And because Bhīma, due to both his being an aṃśa (of Vāyu) and his possession (by that divinity), does not accept our side either.
+
+**प्रसिद्धार्थ ॥ भीष्मस्योभयपक्षतमानत्वाद्भीमस्यास्मन्निरसने सत्यप्रतिज्ञत्वादिति भावः । वाग्बाणभेदेनापि भीष्मः स्वार्थे यतेतेति ताप्तर्यं ॥ १० ॥**
+
+In the well-known meaning (Prasiddhārtha): The idea is that because Bhīṣma is a well-wisher for both sides, and because Bhīma, in rejecting us, is true to his vow. The implied meaning is that even by creating a rift through words (like arrows), Bhīṣma works for his own (true) purpose. || 10 ||
+
+**रा० वि० हि यस्मादेवमतोभवंतः सर्व एव सर्वेष्वयनेषु व्यूहप्रवेशमार्गेषु यथाभागमवस्थिताः-स्वस्वरणभूमिस्थानेषु दृढमवास्थताः संतः भीष्ममेवाभिरक्षतु । अन्यैर्युध्यमानो भीष्मः पृष्ठतोऽरिभिर्यथा न हन्येत तथा रक्षन्त्विति द्रोणाचार्यमुक्त्वा विषसाद, ॥११॥**
+
+For, since all of you are thus positioned in all the entrance paths of the military formations according to your respective divisions—firmly stationed in your own battle-ground positions—you must therefore protect Bhīṣma himself. Having said to Droṇācārya, "While others are fighting, protect (him) so that Bhīṣma is not killed from behind by the enemies," he (Duryodhana) sat down, dejected.
+
+**त्रि०वि० इदानीं भीष्मोपर्यन्ततः कुपितः सन्बहिर्वर्धयन्सैनिकानाज्ञापयति ॥ अयनेष्विति ॥ ॥ अध्यात्मार्थे ॥ सर्वेष्वयनेषु-जीवस्थानरूपेषु देहेषु । यथाभागं यथाधिकारं, हि-यस्मात्, भीष्मस्य क्रोधस्य रक्षणात्तर्वमस्मदभिप्रेतं भवेदिति भावः ॥**
+
+Now, being angry up to the point of (blaming) Bhīṣma, and mustering the soldiers externally, he commands. In the sense of the higher Self (adhyātma): "In all ayanas" meaning in all bodies which are the abodes of the soul. "According to division" means according to jurisdiction. "For" means "because". The idea is that by protecting the anger of Bhīṣma (i.e., his fiery energy), our objective may be accomplished.
+
+**॥ अंशार्थे सर्वेष्वयनेषु-भीष्मद्रोणादिसर्ववीरेषु, यथाभागं यथांशं, अवस्थिताः भवन्तः-कालनेम्याद्यः । भीष्मं-क्रोधाभिमानिनं, खरं, कैटभं वा, अभि-रक्षन्तु । तेनैवास्मत्कार्यसिद्धिरिति भावः ॥**
+
+In the sense of apportionment (aṃśa): "In all ayanas" means in all heroes like Bhīṣma, Droṇa, etc. "According to division" means according to share. "You all who are positioned" refers to (demons like) Kālanemi, etc. "Protect Bhīṣma" means protect the one who is identified with anger (krodhābhimānin), or (the demons) Khara or Kaiṭabha. The idea is that our purpose is accomplished by this itself.
+
+**॥ प्रसिद्धार्थे ॥ ॥ अयनेषु-वाहनेषु, यथाभागं-व्यूहस्य यथोक्तपूर्वादिभाग-**
+
+In the well-known sense (prasiddhārtha): "In the ayanas" means in the vehicles (vāhanas). "According to division" means according to the previously mentioned front, etc., parts of the military formation.
+
+**अयनेषु च सर्वेषु यथाभागमवस्थिताः । भीष्ममेवाभिरक्षतु भवंतः सर्वएव हि ॥ ११ ॥**
+
+And (you all), positioned in all the strategic points according to your respective divisions, must indeed protect Bhīṣma himself, all of you, for (this is crucial).
+
+**तस्य संजनयन्हर्ष कुरुवृद्धः पितामहः । सिंहनादं विनद्योच्चैः शंखं दध्मौ प्रतापवान् ॥ १२ ॥**
+
+The mighty grandfather (pitāmaha), the elder of the Kurus, generating joy in him (Duryodhana), roared a lion's roar loudly and blew his conch.
+
+**मनतिक्रम्यावस्थिताः, सर्वएव भवन्तः भीष्ममेवाभिरक्षन्तु, किमस्मद्रक्षयेत्याक्षेपोक्तिः ॥ वर्धनपक्षे । तस्मिन्राक्षते सति सर्वे वयं रक्षिताःस्थामेति भारः ॥ ११ ॥**
+
+(You all) are positioned without transgressing (your orders). "All of you must protect Bhīṣma himself. Why protect us?" This is an expression of objection. In the interpretation of mustering (vardhana): The implication is that if he (Bhīṣma) is protected, then all of us are protected.
+
+**रा० वि० एवं विषादिनस्तस्य-दुर्योधनस्य हर्ष संजनयन्-जनयितुं "लक्षणहेत्वोः क्रियाया" इति हेतौ शत्रंतं । प्रतापवान्कुरुवृद्धः पितामहो-भीष्मः सिंहनादं उच्चैर्विनद्य शंखं दध्मौ । ध्मा शब्दे ॥ १२ ॥**
+
+Rā. Vi.: Thus, generating joy in him, who was dejected—Duryodhana—in order to produce it, according to the rule "lakṣaṇahetvoḥ kriyāyāḥ" (which governs the use of the affix 'śatṛ' to denote purpose). The mighty (pratāpavān) elder of the Kurus, the grandfather—Bhīṣma—roared a lion's roar loudly and blew his conch. (The root) "dhmā" means 'to produce sound'.
+
+**त्रि० वि० सैनिकानां निजरक्षणस्याज्ञापनेन तुष्टः क्रोधाभिमानी, स्वस्वामिनोहर्षजननाय कृतां कृतिमाह ॥ तस्येति ॥**
+
+Tri. Vi.: The one identified with anger (krodhābhimānī), pleased by the command for the self-protection of the soldiers, describes the act performed to generate joy in his own master.
+
+**॥ अध्यात्मार्थे ॥ ॥ महइत्यत्र पृषोदरादित्वान्मकारोत्तरोकारलोपः । तथा "सप्तसु प्रथमेति" सूत्रात्प्रथमा षष्टचर्थे, तथाच-महः-मोहस्य पिता-उत्पादकः "क्रोधाद्भवति संमोह" इत्युक्तेः ॥**
+
+In the sense of the higher Self (adhyātma): In the word "mahaḥ", due to the rule 'pṛṣodarādi' (a grammatical rule governing sandhi), the 'u' sound after the 'm' is elided. Furthermore, according to the sūtra "saptasu prathamā" (a rule from the Sarasvatīkaṇṭhābharaṇa), the nominative case (prathamā) is used in the sense of the genitive (ṣaṣṭhī). And thus, "mahaḥ" means the father—the producer—of delusion (moha), as it is said: "From anger arises delusion."
+
+**कुरुवृद्धः-ककाररेफोत्तरवर्तिनौ याबुकारौ ताभ्यां विभागयोगेन क्रो इति वर्णे स्थिते तेन वृत्-युक्तः धकारो यत्रेति स कुरुवृद्धः-फोधः ।**
+
+The one in whom, after the letters 'ka' and 'ra' (which follow), the two letters 'ya' and 'bu' are, through the combination of division, situated in the letter 'kro', and there, a 'dha' letter is joined with a 'vṛt' (circle) – that is the Kuru elder: 'phodha' (a name for Bhīṣma).
+
+**तदभिमान्यसुरः ।**
+
+The demon (asura) who is the presiding deity of that (conch).
+
+**तस्य-कले:, हर्षे सञ्जनयन् सम् ।**
+
+Producing joy in his army.
+
+**सिंहनादं-मट्टहासं विनद्य-कृत्वा 'वचनमब्रवीदिति-बत्ज्ञेयम् ॥**
+
+Having loudly sounded a lion's roar – a mighty laugh – he spoke words, which should be understood.
+
+**शंखं-शं सुखं, खनति-उन्मूलयति तत् अन्यथाज्ञानं ।**
+
+'Śaṅkha': 'śa' is happiness, 'kha' is that which uproots (khanati) wrong knowledge.
+
+**दध्मौ-नादयामास, प्रख्यापितवानिति यावत् ।**
+
+He blew – he sounded it, meaning he proclaimed it.
+
+**तथा विष्णुतोभीतिमानित्याह ॥**
+
+And thus, from Viṣṇu, he who has fear, it is said.
+
+**प्रतापवानिति ॥**
+
+He who is mighty.
+
+**प्र-विष्णुः "अ क य प्र वि सं भूम स ख हा विष्णुवाचका" इत्यभिधानात् तस्मात्तापयुक्त इत्यर्थः ॥**
+
+'Pra' is Viṣṇu, according to the statement "a, ka, ya, pra, vi, saṁ, bhū, ma, sa, kha, hā are the designators of Viṣṇu"; therefore, the meaning is 'endowed with the heat (of Viṣṇu)'.
+
+**इत्यध्यात्मार्थे ॥**
+
+This is the adhyātma (spiritual) meaning.
+
+**अंशार्थे ॥**
+
+The partial meaning.
+
+**कुरुवृद्धः-भीष्मः आवेशपात्रत्वेन यस्यास्तीति, "अर्शमाद्यच्" पितामहो-ब्रह्मा, तथैव तात्पर्यनिर्ण-योक्तेः ।**
+
+Kuru elder: Bhīṣma, because he is a vessel for possession; "arśamādyac" (Aṣṭādhyāyī rule) – the grandfather is Brahmā; similarly, according to the statement determining the intent.
+
+**तस्य-कलेः हर्षे सञ्जनयन् सन्निवेति लुप्तोत्प्रेक्षा ।**
+
+Producing joy in his army, as if he were... this is an implied simile.
+
+**सिंहइति नादः शब्दः, नृसिंहनामेति यावत् ।**
+
+The sound (nāda) called 'siṁha' (lion), meaning the name Nṛsiṁha.
+
+**दुरितनिवृत्तये इतिशेषः "नृसिंहा-दिकमन्यच्च दुरितादिनिवृत्तये" इति भाष्योक्तेः ।**
+
+The remainder (of the sentence is) 'for the removal of evil', as stated in the commentary: "Nṛsiṁha and others (are worshipped) for the removal of evil, etc."
+
+**विनद्य-उच्चैरुच्चार्य ।**
+
+Having sounded – having pronounced loudly.
+
+**शंखं शं-सुखसाधनं, खं-ज्ञानं, दध्मौ-व्यधमत् निःसारयामासेति यावत् ।**
+
+Śaṅkha: 'śa' is the means to happiness, 'kha' is knowledge; he blew – he expelled, meaning he cast out.
+
+**यतः प्रतापवान्-प्रार्थं-विष्ण्वर्थ, तापः-तपः तद्वान् ॥**
+
+Because 'pratāpavān' – 'pra' is for the sake of Viṣṇu, 'tāpa' is austerity; he who possesses that.
+
+**प्रसिद्धार्थे ।**
+
+The well-known meaning.
+
+**तस्य-दुर्योधनस्य, कुरुवृद्धः पितामहो-भीष्मः, शंखं-कम्बु, ॥ १२ ॥**
+
+His – Duryodhana's; the Kuru elder, the grandfather – Bhīṣma; the conch – a shell. (Verse 12)
+
+**ततः शंखाश्च भेर्यश्च पणवानकगोमुखाः । सहसैवाभ्यहन्यंत स शब्दस्तुमुलोऽभवत् ॥ १३ ॥**
+
+**रा०वि० ततः तच्छंखध्वानानंतरं पणवानकगोमुखाः-वाद्यविशेषाः सहसैव-युगपदेव । तुमुलः-सर्वत्र परिपूर्णोऽभवत् ॥ १३ ॥**
+
+Rāmānuja Vijaya: Then, after that conch sound, the paṇavas, ānakas, and gomukhas – particular types of musical instruments – were suddenly – simultaneously indeed – sounded. The sound became tumultuous – all-pervading. (13)
+
+**त्रि० वि० ॥**
+
+Trivikrama's commentary.
+
+**आनन्तरिकं वृत्तमाह ॥ ततं इति ॥**
+
+He states the subsequent event: "Then..."
+
+**अध्यात्मार्थे ॥**
+
+The spiritual meaning.
+
+**शंखः-शमुपलक्षितवस्तुजातकारणं खं-शून्यं येषु ते शंखाः-शून्यवादाः |**
+
+Śaṅkhas: Those in which 'śa' is the cause of categories of objects denoted by 'śam' (auspiciousness), and 'kha' is void – these are the śaṅkhas: the doctrines of voidism.
+
+**भेर्यः-भा-भवानी "नामैकदेशग्रहणेन नामग्रहणात्" शक्तिरिति यावत्, ईर्या-प्रतिपाद्या यस्मिन्स भेर्यः-शक्तिवादः ।**
+
+Bheryas: 'Bhā' is Bhavaānī (Goddess Pārvatī); "by grasping a part of the name, the name is grasped" – meaning Śakti (the Divine Power); 'īryā' is that which is to be proclaimed; in which (doctrine) that exists is bheryaḥ: the doctrine of Śakti.
+
+**"पण-व्यवहार" इति धातोः, पणो व्यवहारः, वं बलं यस्मिन्स पणवो-मायावादः ।**
+
+From the root "paṇa" meaning transaction; 'paṇa' is transaction; 'va' is power; in which (doctrine) that exists is paṇavaḥ: the doctrine of illusion (Māyāvāda).
+
+**तस्मिन्व्यावहारिकी यत्तांगीकारात्, ओ-विष्णुः, कः-शब्द-रूपत्वाद्वेदः, तौ कौ यद्वादे न स्तः सोऽनकः-नास्तिकवादः ।**
+
+Because it accepts a transactional reality in that (world); 'o' is Viṣṇu; 'ka' is the Veda because of its nature as sound and form; in which doctrine those two, 'ka' and 'o' (Veda and Viṣṇu), do not exist, that is ānakaḥ: the atheistic doctrine.
+
+**गौः-नन्दीश्वरः, यद्वा शाकपार्थिवत्वाद्गोमान्-पशुपतिः मुखः-मुख्यो यस्मिन्सगोमुखः-पाशुपतवादः ।**
+
+'Gau' is Nandīśvara (Śiva's bull); or, due to being the sovereign of the Śākas (or due to the etymology 'śāka-pārthiva'), 'gomat' is Paśupati (Śiva); 'mukha' is chief; in which (doctrine) that exists is gomukhaḥ: the Pāśupata doctrine.
+
+**एते सहसैव-बलात्कारादेव अभ्यहन्यन्त "हन हिंसागत्योरिति धातोः" "उपसर्गाणामर्थद्योतकत्वाच्च,, अभ्युपगताः-अंगीकृत्यावर्तिताः इति यावत् ।**
+
+These were suddenly – by force indeed – 'abhyahanyanta' (from the root 'han' meaning to strike or to go); "and because prepositions indicate meaning", they were 'abhyupagatāḥ' – accepted and turned back, meaning.
+
+**अनेनैव तेषां निषिद्धत्वं द्योतितम् ।**
+
+By this very (act), their forbidden nature is indicated.
+
+**तुमुलः-सान्द्रः ॥**
+
+Tumulaḥ: dense, intense.
+
+**अंशार्थप्रसिद्धार्थयोः शंखादयो वाद्यभेदा एव ॥ १३ ॥**
+
+In the partial meaning and the well-known meaning, the conch (śaṅkha) and the others are simply different types of musical instruments. (13)
+
+**रा०वि० ततः तेषां घोषानंतरं श्वेतहयैः-शुक्लवर्णाश्वैः युक्ते स्यंदने-रथे पांडवः-अर्जुनः । स्थितावेवेत्यन्वयः ॥**
+
+Rāmānuja Vijaya: Then, after their noise, (he) whose chariot was yoked with white horses – horses of white color; Pāṇḍava – Arjuna. The connection is "remained stationed".
+
+**त्रि०वि० इदानीं देवपक्षीयवृत्तमाह ॥ ततः श्वेतैरिति ॥**
+
+Trivikrama's commentary: Now he states the event pertaining to the side of the gods (Pāṇḍavas): "Then, with white..."
+
+**अध्यात्मार्थे । "टुओश्विगतिवृध्यो"रिति धातोः, श्वं-ज्ञानं तत्सहितं इतं गमनोपलक्षितसर्वकर्मजातं येषां तैः, ज्ञानकर्मकरणैरित्यर्थः ।**
+
+Spiritual meaning: From the root "ṭu o śvi gativṛdhyoḥ", 'śva' is knowledge; with that, 'ita' is all categories of action characterized by movement; by those which possess this – meaning by the instruments of knowledge and action.
+
+**हयैः-गच्छन्ति स्वविषयानिति हयैः-इन्द्रियैः "हयगता"विति धातुः, युक्ते-सहिते ।**
+
+'Hayaiḥ': They go to their objects, thus 'hayaiḥ' are the senses (from the root "haya-gatāv"); 'yukte' – yoked, connected.
+
+**महति-सर्व योनिषु श्रेष्ठत्वात्पूज्ये, स्यन्दने-रथरूपे-नृदेहे "शरीरं रथमेव तु" इति काठकम् ।**
+
+'Mahati': In all forms of existence, because it is the best, it is venerable; 'syandane' – in the chariot-shaped human body ("The body is indeed the chariot" - Kāṭhaka).
+
+**स्थितौ-आश्रितो "द्वा सुपर्णेति" श्रुतेः, माधवः-रमापतिः, पाण्डवः-पाण्डं-प्रमेयं, वाति-जानातीति स तथा जीवइत्यर्थः ।**
+
+'Sthitau': Established, sheltered ("Two birds..." Śruti); 'Mādhavaḥ' – the husband of Ramā (Viṣṇu); 'Pāṇḍavaḥ' – 'pāṇḍa' is the object of knowledge, 'vāti' is he who knows, thus that is the jīva (individual soul), meaning.
+
+**तावुभौ-दिव्यौ-पूर्वोक्तविलक्षणौ शंखौ-सुखसाधनभूतज्ञानसाधनवादौ, प्रदध्मतुः-व्याकुरुतां ॥**
+
+Those two – divine, different from those stated before; the two conches – the doctrines which are the means of knowledge that are the means to happiness; 'pradadhmatuḥ' – they proclaimed.
+
+**अंशार्थे ॥ माधवो-भगवान्, पाण्डवः-नरः-इन्द्रोवा ॥**
+
+Partial meaning: Mādhava is the Blessed Lord; Pāṇḍava is the man (Arjuna) or Indra.
+
+**ततः श्वेतैर्हयैर्युक्ते महति स्यंदने स्थितौ । माधवः पांडवश्चैव दिव्यौ शंखौ प्रदध्मतुः ॥ १४ ॥**
+
+Then, stationed on a great chariot yoked with white horses, Mādhava (Kṛṣṇa) and the Pāṇḍava (Arjuna) blew their divine conches. (14)
+
+**पांचजन्यं हृषीकेशो देवदत्तं धनंजयः । पौड्रं दध्मौ महाशंखं भीमकर्मा वृकोदरः ॥ १५ ॥**
+
+**प्रसिद्धार्थे ॥ माधवो भगवान् पाण्डवो-अर्जुनः ॥ १४ ॥**
+
+Well-known meaning: Mādhava is the Blessed Lord; Pāṇḍava is Arjuna. (14)
+
+**रा०वि० तद्विवृणोति ॥ पांचजन्यमिति ॥ हृषीकेशशब्दार्थ उक्तो भाष्ये एकादशे हृषीकाणामिंद्रियाणामशित्वाच्च हृषīकेश, इत्यादि ॥ दध्मावित्यन्वयः ॥ १५ ॥**
+
+Rāmānuja Vijaya: He elaborates on that: "Pāñcajanyam..." The meaning of the word 'Hṛṣīkeśa' is stated in the commentary on the eleventh (chapter): "Hṛṣīkeśa: because he is the lord (īśa) of the senses (hṛṣīka)..." The connection is "blew". (15)
+
+**त्रि०वि० ॥ वाद्यवादको विविच्याह ॥ पाञ्चजन्यमिति ॥**
+
+Trivikrama's commentary: Distinguishing the blower and the thing blown, he says: "Pāñcajanyam..."
+
+**अध्यात्मार्थे-हृषीकेशः-इन्द्रियनियन्ता भगवान् बिम्वरूपः ।**
+
+Spiritual meaning: Hṛṣīkeśa – the Blessed Lord, the original form, the controller of the senses.
+
+**पाञ्चजन्यं-पञ्च-धर्मार्थकाममोक्षतत्साधनं-ज्ञानानि, जन्यानि-उत्पाद्यानि यस्य तं वादं । स्वार्थे अण् ।**
+
+Pāñcajanya: 'Pañca' – Dharma, Artha, Kāma, Mokṣa, and the means to them – knowledges; 'janya' – that by which they are produced; that doctrine. The suffix 'aṇ' is used in its own sense.
+
+**धनञ्जयः-धनं मोक्षसाधनम् जायते यस्मात्तद्धनञ्जं-ज्ञानं तद्यातीति सतथा, ज्ञानयोग्यः प्रतिबिम्बो जीव इत्यर्थः ।**
+
+Dhanañjaya: 'Dhana' is the means to liberation; 'jñaya' is that from which it is born; that is 'dhanañja' – knowledge; he who goes by that (knowledge), thus such; the reflected image (jīva) who is fit for knowledge, meaning.
+
+**देवदत्तं स्वयोग्यतानुसारेण, देवेन-भगवता दत्तं ज्ञापितं वादं ।**
+
+Devadatta: According to his own competency, the doctrine given – made known – by God – by the Blessed Lord.
+
+**प्रदध्माविति पूर्वोक्तवचनवि-परिणामेन प्रत्येकमन्वयः ।**
+
+'Pradadhmau' – the connection for each is to be made by modifying the previously stated words accordingly.
+
+**भगवदनन्तरमेव प्राणादीनां वक्तव्यत्वेपि अधुना जीवस्य बोध्यत्वेन प्राधान्यात्तदन्तएव वाय्वादिवादानाह ॥**
+
+Although the (conches) of Prāṇa, etc., should be stated immediately after the Blessed Lord's, now, because the jīva is primary as the one to be instructed, he states the doctrines of Vāyu (wind), etc., right after that.
+

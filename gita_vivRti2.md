@@ -2590,3 +2590,87 @@ Devadatta: According to his own competency, the doctrine given – made known �
 
 Although the (conches) of Prāṇa, etc., should be stated immediately after the Blessed Lord's, now, because the jīva is primary as the one to be instructed, he states the doctrines of Vāyu (wind), etc., right after that.
 
+**भीमो-विष्णुः "अतुलः शरभोभीम" इति सहस्रनामसु पाठात ।**
+
+He is Bhīma (as) Viṣṇu, because of the reading in the Sahasranāma, "the incomparable, Śarabha, the terrible (Bhīma)."
+
+**तदर्थमेव कर्माण यस्य स प्राणः ।**
+
+That very purpose (is) the action; whose (he is), he is the vital air (Prāṇa).
+
+**यद्वा । "वामदेवो भवो भीमइति" कोशात्, भीमो-रुद्रः, तस्य कर्माणि यस्मात्सः "आभासकोऽस्य पवनः पवनस्य रुद्र" इत्युक्तेः, रुद्रस्य प्राण-प्रतिबिम्बत्वेन तत्कर्मणामपि तदधीनत्वात् ।**
+
+Or, according to the dictionary (which says) "Vāmadeva, Bhava, (and) Bhīma", Bhīma is Rudra; because his actions are from him (Prāṇa), as stated "The air (Prāṇa) is the illuminator of this (Rudra), Rudra (is) of the air", because the actions of Rudra, being a reflection of the vital air (Prāṇa), are also dependent on it.
+
+**अवृकः न वृकः-छेत्ता यस्य सः ।**
+
+He is Avṛka (not a wolf), meaning one for whom there is no cutter (destroyer).
+
+**वृकइति पदे तु. वृक्णाति शत्रूनिति स तथा ।**
+
+But in the word 'Vṛka', he is so called because he tears apart (vṛkṇāti) enemies.
+
+**अतएवा-दरः-निर्भयः ।**
+
+Therefore, he is fearless.
+
+**पौण्ड्रं-पुण्ड्राः-तिलकः तदुपलक्षितचक्रादिमुद्राश्च सन्त्येषामिति पुण्ड्राः-वैष्णवाः "नामचिन्हादिना देहे वन्हिना वा मृदां-कनम् । सा बाह्या प्रोच्यते दीक्षे" त्युक्तेः तेषामिमं पौण्ड्रं ।**
+
+(The conch named) Pauṇḍra: The P uṇḍras are the tilaka mark; and they possess the conch, discus, and other marks indicated by that; thus the P uṇḍras are the Vaiṣṇavas, as stated "Initiation is said to be the external purification of the body by means of name, insignia, etc., or by fire, or by a small amount of earth"; this (conch) of theirs is Pauṇḍra.
+
+**महाशंखं-महत् शं-सुखं, खं-ज्ञानं च यस्मात्तं वादं ।**
+
+(The conch named) Mahāśaṅkha: because from it (comes) great (mahāt) bliss (śaṁ) and knowledge (khaṁ), that sound.
+
+**दध्मौ-व्याकरोत् ॥ ॥१२॥ ॥**
+
+He blew (sounded).
+
+**अंशार्थे-हृषीकेशो-विष्णुः, पाञ्चजन्यं-पंच-पंचवारं जनिः-प्रादुर्भावो यस्य सपंचजनिर्व्यासः "तृतीये पञ्चमे चैव षोडशे पंचविंशके । अष्टाविंशे युगे कृष्णः सत्यवत्यामजायतेति" द्वितीयतात्पर्योक्तेः । तदीयः पाञ्चजन्यंः-ब्रह्मसूत्रमहाभारतादि वादः दध्मौ-ख्यापयामास ।**
+
+In the context of the part (amśa): Hṛṣīkeśa is Viṣṇu. Pāñcajanya: (Pañca means) five, five times; birth (janīḥ) means manifestation; thus he whose (whose manifestation occurs) five times is Vyāsa, as stated in the secondary implied meaning, "In the third, the fifth, the sixteenth, the twenty-fifth, (and) the twenty-eighth yuga, Kṛṣṇa is born from Satyavatī." His (Vyāsa's) Pāñcajanya is the discourse of the Brahma Sūtras, Mahābhārata, etc. He (Dhṛtarāṣṭra) blew (sounded/uttered), meaning he proclaimed.
+
+**अनंतविजयं राजा कुन्तीपुत्रो युधिष्ठिरः । नकुलः सहदेवश्च सुघोषमणिपुष्पकौ ॥ १६ ॥**
+
+King Yudhiṣṭhira, the son of Kuntī, blew the conch named Anantavijaya, and Nakula and Sahadeva (blew) Sughoṣa and Maṇipuṣpaka.
+
+**यद्वा पंचमहापातकानि जनयन्ति ते पञ्चजनाः असुराः, तदीयं पाञ्चजन्यं-मायावादादिवादं, दध्मौ-व्यधमत्-धमति शब्दस्य वधकर्मसु पाठात्, निरस्तवानिति यावत् ।**
+
+He filled with sound. Or, those who generate the five great sins are the Pañcajanas (five kinds of beings), the demons; their Pāñcajanya is the discourse of illusionism (Māyāvāda), etc.; he blew—meaning he destroyed—because the root 'dhamati' (to blow) is used in the sense of killing; meaning he rejected.
+
+**धनञ्जयः इन्द्रः, देवदत्तं-देवेन-ब्रह्मणा दत्तम्-उपदिष्टम् "यएषोन्तरक्षिणि पुरुषो-दृश्यते स एषआत्मे"त्याकारकं वादं दध्मौ-रव्यापयामास ।**
+
+Dhanañjaya is Indra. Devadatta: given (datta)—taught (upadiṣṭam)—by the god Brahmā, the discourse of the form "This person who is seen within the eye, that is the Self"; he blew—filled with sound.
+
+**यद्वा । - अदेवाय-विरोचनारव्याय असुराय, दत्तं-योग्यतानुसारेण ज्ञापितार्थं दध्मौ-व्यधमत् ।**
+
+Or, to the non-god—to the demon named Virocana; datta—the meaning revealed according to (his) eligibility; he blew—destroyed.
+
+**भीमकर्मा-उग्रकर्मा, वृकोदरः प्राणः ।**
+
+Of terrible deeds—of fierce actions; Vṛkodara is the vital air (Prāṇa).
+
+**पौण्ड्रं "मडिभूषायां पुडिचे"ति धातोः, भूषितंःशंखं, दध्मौ-अवादयत् ॥ ॥ प्रसिद्धार्थ ।**
+
+Pauṇḍra: from the root "puḍīc" (in the sense of adorning), the adorned conch; he blew—sounded. (This is) the well-known meaning.
+
+**हृषीकेशः कृष्णः, पांचजन्यं-पंचजनासुरांगजं ।**
+
+Hṛṣīkeśa is Kṛṣṇa. Pāñcajanya: (the conch) produced from the body of the demon Pañcajana.
+
+**धनञ्जयः-अर्जुनः, देवदत्तं-अग्निदत्तम् ॥ १५ ॥ रा० वि०**
+
+Dhanañjaya is Arjuna. Devadatta: given by Agni. Rā. Vi. (Commentary of Rāmānuja)
+
+**अनंतविजयं-अनंतविजयाख्यं ।**
+
+Anantavijaya: named Anantavijaya.
+
+**नकुलः सुघोषाख्यं शंखं सहदेवो मणिपुष्पकाख्यं दध्मुरित्यन्वयः ॥ १६ ॥ त्रि० वि० ॥**
+
+Nakula blew the conch named Sughoṣa; Sahadeva (blew) the one named Maṇipuṣpaka—this is the connection. Tri. Vi. (Commentary of Madhva)
+
+**अनन्तेति ॥ ॥ अध्यात्मार्थे । कुन्तीपुत्रः-कुं-पृथिवीं, तनोति प्रजाभिरिति कुन्ती, ईपुत्रः-मायारूपायाः इयः-लक्ष्म्याः पुत्रः "लक्ष्मीरीकारउच्यते" इत्युक्तेः, युधि-युद्धकर्मणि स्थिरः-प्रवृत्तिरहितः ।**
+
+"Ananta..." In the spiritual sense (adhyātmārthe): "Son of Kuntī"—Kun (kuṁ) means the earth; she who spreads (tanoti) with progeny, thus Kuntī; ī-putraḥ—the son of ī (īyāḥ)—Lakṣmī, who is of the nature of Māyā, as stated "Lakṣmī is called the letter ī"; Yudhiṣṭhira—steady in battle (yudhi)—devoid of activity.
+

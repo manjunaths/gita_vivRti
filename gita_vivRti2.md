@@ -922,7 +922,7 @@ By etymological force, the "u" is present in both.
 
 "Karma is called so because it is to be done"—as explained in the Gita commentary.
 
-**तस्य क्षेत्र उप्तत्तिस्थानं नृशरीरमित्यर्थः ।**
+**तस्य क्षेत्र उत्पत्तिस्थानं नृशरीरमित्यर्थः ।**
 
 Its "kshetra" (field) is the human body, the place of action.
 

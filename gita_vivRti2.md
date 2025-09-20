@@ -2674,3 +2674,227 @@ Nakula blew the conch named Sughoṣa; Sahadeva (blew) the one named Maṇipuṣ
 
 "Ananta..." In the spiritual sense (adhyātmārthe): "Son of Kuntī"—Kun (kuṁ) means the earth; she who spreads (tanoti) with progeny, thus Kuntī; ī-putraḥ—the son of ī (īyāḥ)—Lakṣmī, who is of the nature of Māyā, as stated "Lakṣmī is called the letter ī"; Yudhiṣṭhira—steady in battle (yudhi)—devoid of activity.
 
+**यद्वा । कामक्रोधादिभिः सह युद्धे स्थिरः-अचलः, राजा-देवेशोब्रह्मा ।**
+
+Or, in battle against desires, anger, etc., he who is steady and immovable is the king, the Lord of gods, Brahma.
+
+**अनन्तविजयं-अनन्तस्यदेशकालगुणतोअन्तरहितस्य विष्णोः विजयः-सर्वोत्कर्षीयस्मिन्स्तं ब्रह्मसूत्रात्मकं वादं दध्मौ-ख्यापयामास ।**
+
+He (Yudhishthira) blew the conch named Anantavijaya, which is the victory of Vishnu, the infinite one who is without interior or distinction of place, time, or quality; that is, he proclaimed the discourse which is of the nature of the Brahma Sutras and in which all excellence resides.
+
+**नकुलः नकुं-सुवं, लाति-स्वीकरोति, गमने नकुलो-गरुडः ।**
+
+Nakula, who takes (lāti) or accepts the good (naḳuṁ-suvam); in movement, Nakula is Garuḍa.
+
+**सुघोषं-अपौरुषेयत्वेन शोभनोघोषो-वर्णात्मकः शब्दोवास्मन्स्तं-वेदरूपं वादं "सुपर्णोऽखिलवेदाना"मिति ऋग्भाष्योक्तेः ।**
+
+(He blew) the conch named Sughosha, which has a beautiful sound (shobhana ghoshah) that is non-human (apaurusheyatvena) and consists of letters (varṇātmakaḥ shabdaḥ); that is, he proclaimed the discourse which is of the form of the Vedas, as stated in the Rig Veda commentary: "Suparna (Garuḍa) is of all the Vedas."
+
+**सहदेवः देवेन-विष्णुना रामकृष्णाद्यवतारेषु शयने सह वर्ततइति शेषः, इत्यर्थः ।**
+
+Sahadeva is one who exists (vartata) together with (saha) the god Vishnu in his incarnations like Rama and Krishna during sleep (shayane), meaning he is Shesha.
+
+**मणिपुष्पकम्-प्रणिभिःमुक्ताफलैः पुष्यते सामणिपुष्पो-हंसः तत्सदृशरूपत्वात् हंसरूपीविष्णुः, को-ब्रह्मा तदुभयसंवादरूपत्वात्प-चरात्रात्मकं वादमित्यर्थः । "पञ्चरात्रस्य नागराडि"त्यृग्भाव्योक्तेः ॥ ॥ अंशार्थे ॥**
+
+(He blew) the conch named Manipushpaka, which is nourished (pushyate) by praṇis (beings) with pearls (muktāphalaiḥ); the one with a jewel and a flower (sāmaṇipushpo) is the swan (haṃsaḥ); due to having a form similar to that, Vishnu in the form of a swan; who (kaḥ) is Brahma; meaning, he proclaimed the discourse which is of the nature of the Pancharatra, from the dialogue between those two, as stated in the Rig Veda Bhashya: "The Pancharatra of Nāgarāja (Shesha)".
+
+**कुन्तीपुत्रः-कुं-भूमि तनोति प्रकाशेनेति कुन्तः-सूर्यः तत्पत्नी कुन्ती-संज्ञाख्या तस्याः पुत्रो-यमः "धर्मराजो यमः पूर्व" मित्युक्तेः, अधर्मेण साकं यद्युद्धं तस्मिन् स्थिरः ।**
+
+The son of Kunti: 'Ku' means earth, he who spreads (tanoti) with light (prakāśhena) is Kunta—the sun; his wife is named Kunti; her son is Yama, as said "Dharma Raja Yama is first"; he is steady in that battle which is with unrighteousness (adharmeṇa).
+
+**काश्यश्च परमेष्वासः शिखण्डी च महारथः ।**
+
+And Kashi's king, the great archer; and Shikhandi, the great chariot-warrior.
+
+**धृष्टद्युम्नो विराटश्च सात्यकिश्चापराजितः ॥ १७ ॥**
+
+And Dhrishtadyumna, and Virata, and Satyaki, the unconquered.
+
+**अनन्तविजयंतन्नामकं शंखं । "नकुलः सहदेवेश्च अश्विनौ नकुलः सहदेवौ द्वो नासत्यौ सम्प्रकीर्तितौ" इत्युक्तेः ॥ ॥ प्रसिद्धार्थे ।**
+
+(The conch) named Anantavijaya. As it is said: "Nakula and Sahadeva are the Ashvins; Nakula and Sahadeva are proclaimed as the two Nasatyas." This is the well-known meaning.
+
+**युधिष्ठिरो-धर्मराजः ।**
+
+Yudhishthira is the King of Righteousness.
+
+**सुघोषाख्यं मणिपुष्पकारूयं च ॥ १६ ॥**
+
+(He blew) the conch named Sughosha and the one named Manipushpaka. (Verse 16)
+
+**रा० वि० परमेष्वासो महाधनुष्कः काश्यः ।**
+
+According to the Rajavartika: Kashi's king is a great archer (mahādhanushkaḥ).
+
+**महारथः शिखंडी च ।**
+
+And Shikhandi is a great chariot-warrior (mahārathaḥ).
+
+**अपराजितः सात्यकिश्च ॥ १७ ॥**
+
+And Satyaki is unconquered (aparājitaḥ). (Verse 17)
+
+**त्रि० वि० काश्यइति ॥ ॥ अध्यात्मार्थे ।**
+
+According to the Trivandrum commentary: This is the transcendental meaning.
+
+**काश्यः-दिशः, अभिमानिनयन्यायेन तद्देवताः ।**
+
+Kashya: The directions; by the principle of being presided over by their deities.
+
+**परमेष्वासः-परमस्य-विष्णोः, इषुत्वेन-बाणत्वेनास्त इति, प्राणपुत्रः प्राणइत्यर्थः "वायुपुत्रोहरेर्बाण" इत्युक्तेः ।**
+
+Parameshvasah: He who exists as the arrow (ishutvena) of the supreme (paramasya) Vishnu; meaning the son of breath (prāṇa-putraḥ), the vital air (prāṇaḥ), as said "The son of Vayu is the arrow of Hari".
+
+**शिखण्डी "शा तनूकरण" इति धातोः, श्यति ऊनीकरोति तमो हिमं वा सः शी, खं-आकाशं अमति-गच्छति "अमगत्यादौ" अमन्ताङः  "कर्तर्थर्थे णिनिः" सूर्य-इत्यर्थः ।**
+
+Shikhandi: From the root 'śā' meaning to make thin; he who makes thin (śyati), reduces (ūnīkaroti) darkness or frost; that is 'śī'; he who goes (amati) to the sky (kham-ākāśam) from the root 'am' (to go); with the suffix 'ṇini' indicating an agent; meaning the sun.
+
+**महारथः-महान्जलचरश्रेष्टोमकरः, रथो-वाहनं यस्य सः-वरुणः,**
+
+Mahārathaḥ: The great (mahān) aquatic creature (jala-cara), the best, the makara; he whose vehicle (rathaḥ) is that; he is Varuṇa.
+
+**च शब्दादश्विनावपि**
+
+And from the word 'cha' (and), the Ashvins are also (implied).
+
+**धृष्टद्युन्नः धृष्टं-धर्षणशीलं, युनं-चलं यस्य सोऽग्निः ।**
+
+Dhrishtadyumna: He who has bold (dhrishtaṁ)—daring; and movement (yunaṁ)—agitation; he is Agni (fire).
+
+**विराटः "ला आदान" इति धातोः रलयोरभेदाच्च, विशेषेण रां-आदानादिक्रियां अव्यति-प्रापयतीति विराटः-दक्षइत्यर्थः ।**
+
+Virāṭa: Because there is no distinction between the letters 'ra' and 'la' in the root "lā ādāna" (to take, to receive), and because he especially enables the uninterrupted performance of actions like taking the 'rāṃ' (the supreme), he is called Virāṭa, meaning 'skilled' or 'capable'.
+
+**सात्यकिः-सत्यं-सत्यलोकः, कं-शीर्ष यस्य स विष्णुः "सत्यं तु शीर्वाणि सहस्रशीर्ण" इति भागवते, तदीयोऽवतारः सात्यकिः-जयन्तइत्यर्थः "जयन्तो वासुदेवांश" इति भागवते षष्ठे ।**
+
+Sātyaki: 'Satya' is the abode of truth (or Brahmaloka), and 'ka' means 'head'; He whose head it is, is Vishnu ("For truth is the head of the thousand-headed [Vishnu]" - Bhāgavata). His incarnation is Sātyaki, meaning 'Jayanta' ("Jayanta is a portion of Vāsudeva" - Bhāgavata, Sixth Skandha).
+
+**अपराजितः-अपरस्मिन्-पश्चिमे द्वारे, आ-सर्वतः, जितं-जयः-उत्कर्षइति यावत्-यस्य सः मित्रइत्यर्थः, च शब्दान्मनुरपि ।**
+
+Aparājita: He who has victory (jitaṃ), i.e., excellence, from (ā) all sides (sarvataḥ) at the other (apara), western (paścime) gate (dvāre), is Mitra (the deity); and by the word 'ca' (and), Manu is also (implied).
+
+**अत्र शिष्टाश्चाः समुच्चयार्थे ॥**
+
+Here, the remaining 'cāḥ' (words like 'ca') are for the purpose of conjunction (i.e., to include other names).
+
+**॥ अंशार्थ ।**
+
+**काश्यःकश्चिद्देवः ।**
+
+Kāśya: Some deity.
+
+**शिखण्डी-युवसोःपत्नीवरांगीनाम्न्नी, वरात्पुंस्त्वं, "अम्बा सा भीष्ममार्यैव पूर्व नाम्ना वरांगिनी" त्युक्तेः । "अम्बेवाभूच्छिखण्डीति"  स्फुटमुद्योगपर्वणीति ।**
+
+Śikhaṇḍī: The wife of the two young men (the Kāśi princes), named Varaṅginī; from a boon (she obtained) masculinity; as it is said: "That very lady Ambā, who was formerly named Varaṅginī, (was the cause) for Bhīṣma." ("She became Śikhaṇḍinī") this is clearly stated in the Udyogaparvan.
+
+**धृष्टद्युम्नः-अग्निः "धृष्टद्युम्नस्तथाऽनल" इत्युक्तेः**
+
+Dhṛṣṭadyumna: Fire (Agni), as it is said: "Dhṛṣṭadyumna is likewise Anala (fire)".
+
+**विराटः हाहागन्धर्वः ।**
+
+Virāṭa: The Gandharva named Hāhā.
+
+**सात्यकिः-संवहनामा कृष्णपक्षाभिमानी देवः ॥**
+
+Sātyaki: A deity named Saṃvaha, who presides over the dark fortnight (kṛṣṇapakṣa).
+
+**॥ प्रसिद्धार्थे ॥**
+
+**काश्यः काशीराजः,**
+
+Kāśya: The king of Kāśī.
+
+**शिखण्डी-द्रुपदपुत्रः ।**
+
+Śikhaṇḍī: The son of Drupada.
+
+**धृष्टद्युम्नो द्रौपदीभ्राता ।**
+
+Dhṛṣṭadyumna: The brother of Draupadī.
+
+**विराटः मत्स्यराजः ।**
+
+Virāṭa: The king of Matsya.
+
+**सात्यकिः युयुधानो यादवः ॥**
+
+Sātyaki: Yuyudhāna, the Yādava.
+
+**द्रुपदो द्रौपदेयाश्च सर्वशः पृथिवीपते । सौभद्रश्च महाबाहुः शंखं दध्मुः पृथक् पृथक् ॥ १८ ॥**
+
+**द्रुपदो द्रौपदेयाश्च सर्वशः पृथिवीपते ।**
+
+O Lord of the earth (Dhṛtarāṣṭra), Drupada and the sons of Draupadī (the Draupadeyas), all of them,
+
+**सौभद्रश्च महाबाहुः शंखं दध्मुः पृथक् पृथक् ॥ १८ ॥**
+
+and the mighty-armed Soubhadra (Abhimanyu), blew their respective conches.
+
+**॥ १७ ॥ रा० वि० पृथिवीपते-हे धृतराष्ट्र, महाबाहुः सौभद्रोऽभिमन्युश्च शंखमिति समुदायाभिप्रायः । वस्वशंखान्दध्मुरिति ॥**
+
+O Dhṛtarāṣṭra, lord of the earth; the intention is that the mighty-armed Soubhadra (Abhimanyu) and the (five) conches (of the Draupadeyas) together—this is the collective meaning. (It means) they blew their five conches.
+
+**॥ १८ ॥ त्रि० वि० द्रुपदइति ॥**
+
+Drupada and so on... (This ends the commentary on the names).
+
+**॥ अध्यात्मार्थ-**
+
+**द्रुपदः द्रुतं पदानि तदुपलक्षितवर्णवाक्यादीनि यस्मात्त बृहस्पतिः ।**
+
+Drupada: (He from whom) words (padāni), and by that implication letters, sentences, etc., flow swiftly (drutaṃ); that is Bṛhaspati (the guru of the gods).
+
+**द्रौपदेयाः-शिवजाः पञ्चप्राणाद्याः ।**
+
+Draupadeyāḥ: The five born of Śiva, i.e., the five vital airs (prāṇa, etc.) and so on.
+
+**सर्वशइत्यनेन प्राणपुत्राः शिवपुत्राश्च शब्दायभिमानिनइति सूचितं ।**
+
+By the word 'sarvashaḥ' (all) it is indicated that the sons of the vital air and the sons of Śiva are the presiding deities of sound.
+
+**हे पृथिवीपते शरीराद्यभिमानिन् ?**
+
+O Lord of the earth, (addressing) the one who identifies with the body, etc.?
+
+**सौभद्रो-विनायकः,**
+
+Soubhadra: (is) Vināyaka (Gaṇeśa),
+
+**च शब्दाद्वाय्वग्निवरुणधरादयो गृह्यन्ते ।**
+
+and by the word 'ca' (and), Vāyu (wind), Agni (fire), Varuṇa (water), and Dhara (earth) are also understood.
+
+**यद्वा च शब्दाद्वायोरेव ग्रहणम् ।**
+
+Or, by the word 'ca', only Vāyu (the wind) is understood.
+
+**महाबाहु इति पदं, महत्यः आपो यस्मात्समहाप्-अग्निः "अग्नेराप" इतिश्रुतेः ।**
+
+The word 'mahā-bāhu' (mighty-armed): 'Mahatīḥ' are the waters (āpaḥ); he from whom (that comes) is 'mahāp' (great-watered) - Agni (fire), according to the śruti "The waters belong to Agni".
+
+**पुनः महत्यः आपो यस्य स महाप्-वरुणः अधीनार्थे षष्टा ।**
+
+Again, he who has (yasya) the great (mahatīḥ) waters (āpaḥ) is 'mahāp' - Varuṇa (the lord of waters); the genitive case (ṣaṣṭhā) is used to express control.
+
+**पुनः महत्यः भूयस्त्ववत्यः, गुरुत्वव-द्रव्यमध्ये आपो यस्याः सकाशात्सा पृथिवी "भूयस्त्वं चापा" मित्युक्तेः**
+
+Again, 'mahatīḥ' means abundant, possessing bulk; she from whose presence (sakāśāt) the waters, which are among the heavy substances, (come) is the earth (pṛthivī), as it is said "And the waters are abundant".
+
+**महति महयति वा देवतामनेन पुरुषस्येति महत् ।**
+
+That by which (anena) the deity in a person is magnified (mahayati) or which is great (mahati) is 'mahat' (the great principle, intellect).
+
+**मह्यते वा देवता ॥ १३ ॥ त्वात् इति वा ॥**
+
+Or, the deity is magnified (mahyate)... (or from the suffix 'tvāt').
+
+**पृथक्-भगवतोजडमपि पृथक्, जीवोपि पृथक्, इत्याहुस्तत्ववादिन इति शेषः ।**
+
+Pṛthak (separately): The insentient (jada) is separate from the Lord, and the individual soul (jīva) is also separate; so say the Tattvavādins (philosophers who believe in the reality of the world and souls) - this is the remainder (of the meaning).
+
+**इति शंखान-सुखज्ञानसाधनान्वादान् दध्मुः ख्यापयामासुः ॥**
+
+Thus, they blew (dadhmūḥ) and proclaimed (khyāpayāmāsuḥ) the conches, which are the means (sādhanāni) for the knowledge (jñāna) of bliss (sukha).
+

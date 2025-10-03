@@ -2898,3 +2898,265 @@ Pṛthak (separately): The insentient (jada) is separate from the Lord, and the 
 
 Thus, they blew (dadhmūḥ) and proclaimed (khyāpayāmāsuḥ) the conches, which are the means (sādhanāni) for the knowledge (jñāna) of bliss (sukha).
 
+**यद्वा । भगवान् पृथक्तः पृथक्-एकरूप इति ॥**
+
+Or, the Lord is of distinct and unitary forms.
+
+**अंशार्थे ॥**
+
+In the sense of being a part/portion...
+
+**द्रुपदः-हूहूगन्धर्वः, द्रौपदेयाश्च-विश्वेदेवाः सौभो-बुधः ।**
+
+King Drupada is (an incarnation of) the Gandharva Huhu, and the sons of Draupadi are the Vishvedevas; Prince Shikhandi is (the planet) Budha (Mercury).
+
+**हे पृथिवीपते-षड्जादिसप्तस्वराणां भ्वादिसत्पलोकस्थानत्वात्पृथिवीशब्देन षड्जस्वरः धृतराष्ट्रगन्धर्वस्य तदभिमानित्वात्तं प्रति पृथिवीपते इति सम्बुद्धिः ॥**
+
+O Lord of the Earth - Because the seven notes starting with 'Shadja' have their abode in the seven worlds starting with 'Bhuh', the note 'Shadja' is denoted by the word 'Earth'. Since the Gandharva Dhritarashtra presides over that (note), the address "O Lord of the Earth" is directed towards him.
+
+**प्रसिद्धार्थे ।**
+
+In the well-known sense...
+
+**द्रुपदः पार्षतः ।**
+
+Drupada is the son of Prishata.
+
+**द्रौपदेयाः-प्रतिविन्ध्यश्रुतसोमश्रुतकीर्तिशतानीकश्रुतकर्माख्याः ।**
+
+The sons of Draupadi are named Prativindhya, Sutasoma, Srutakirti, Shatanika, and Srutakarma.
+
+**हे पृथिवीपते-धृतराष्ट्र? सौभद्रो-अभिमन्युः, शंखान्-दरान्, पथक्पृथक् प्रातिस्विकत्वेनेत्यर्थः, एककालएव वा ॥ १८ ॥**
+
+O Lord of the Earth - Dhritarashtra? (Alternatively,) Saubhadra (Abhimanyu), the conch shells, and the (other) instruments, each with their own distinct (sound), or simultaneously. (18)
+
+**रा० वि० स घोषस्तुमुलो-व्याप्तो भूत्वा नभश्च पृथिवीं च व्यनुनादयन्-तत्र तत्र प्रतिध्वनिं जनयन्नेव धार्तराष्ट्राणां त्वत्पुत्राणां हृदयानि व्यदारयत् ।**
+
+That tumultuous sound, having become all-pervading and resounding throughout the sky and the earth, creating echoes everywhere, indeed tore apart the hearts of the sons of Dhritarashtra, your sons.
+
+**अधैवनष्टं कुरुकुलमिति त्वत्पुत्रा मेनिरे इत्यर्थः ॥ १९ ॥**
+
+The meaning is that your sons thought, "The Kuru dynasty is now destroyed."
+
+**त्रि० वि० विपक्षाणां नानावाद्यघोषाणामपि तुमुलत्वमेवाभिधाय स्वपक्षीयाणां**
+
+Having stated that the various sounds of the musical instruments of the opponents were also tumultuous...
+
+**सघोषो धार्तराष्ट्राणां हृदयानि व्यदारयत् ।**
+**नभश्च पृथिवीं चैव तुमुलो व्यनुनादयन् ॥ १९ ॥**
+
+The sound, tumultuous and resounding through the sky and the earth, tore apart the hearts of the sons of Dhritarashtra. (19)
+
+**अथ व्यवस्थितान्दृष्ट्वा धार्तराष्ट्रान्कपिध्वजः ।**
+**प्रवृत्ते शस्त्रसम्पाते धनुरुद्यम्य पाण्डवः ॥ २० ॥**
+
+Then, Arjuna, the monkey-bannered Pandava, seeing the sons of Dhritarashtra arrayed and when the clash of weapons had commenced, lifted his bow.
+
+**केवलशंखशब्दानामेव परहृदयविदारकत्वमेशऽभिधत्ते ॥**
+
+(He) states that the sound of the conch shells alone is capable of tearing the hearts of the enemy.
+
+**सघोषइति ॥**
+
+...this sound.
+
+**अध्यात्मार्थे ।**
+
+In the spiritual sense...
+
+**धार्तराष्ट्राणां "धं धने निधने धीरे" इत्ये-काक्षरात्, धेन-नादेन, आर्तानि-राष्ट्राणि-देशाः येषान्तेषामसुराणाम् ॥**
+
+Of the Dhartarashtras - From the single syllable "Dha" (meaning "wealth", "treasure", "steady"), by the sound "Dha", whose countries/realms are afflicted - of those demons.
+
+**अन्यत्र-दोषरूपाणाम् "सर्वदोषात्मकाःपरे धार्तराष्ट्राः" इत्युक्तेः ॥**
+
+Elsewhere - (They are) of the nature of faults, as it is said: "The opposing Dhartarashtras are embodiments of all faults."
+
+**अपरत्र-धृतराष्ट्रपुत्राणां अनुनादयन्-प्रतिध्वनयन् ॥ १९ ॥**
+
+In another sense - (The sound) reverberating, echoing, for the sons of Dhritarashtra. (19)
+
+**रा० वि० तत्वोपदेशप्रसंजकं अर्जुनविषादं वक्तुं एतावानुपोद्धातः प्रवृत्तः ।**
+
+This much of a preface has been undertaken to state Arjuna's despondency, which is the occasion for the teaching of the Truth (the Gita).
+
+**एवं दुर्योधनव्यापारं दलद्वयगतव्यापारं चोक्त्वा अधुनाऽर्जुनव्यापारमाह ॥**
+
+Having thus described the activities of Duryodhana and the activities of the two armies, now (the narrator) speaks of Arjuna's activity.
+
+**अथेत्यादिचतुर्भिः श्लोकैः ॥**
+
+With the four verses beginning with "Atha" (Then...).
+
+**अथ अनंतरं कपिध्वजः-अर्जुनः व्यवस्थितान् युद्धे कृतनिश्चयान् दृष्ट्वा शस्त्रसंपाते-शस्त्रप्रहरणे प्रवृत्त-वर्तमानसामीप्ये वर्तमानवद्वा प्रवर्तितुमुद्युक्ते सति ॥**
+
+Then, afterwards, Arjuna, having seen them arrayed, determined for battle, and when the clash of weapons had commenced - i.e., when the hurling of weapons was underway, was present in proximity, or as if present, (and) was engaged and ready to act...
+
+**॥ अध्यात्मार्थे । अथव्यवस्थितानित्येकं पदं, थः-प्राणः, "तथौ प्राणात्मकौ प्रोक्तो" इत्युक्तेः, वीन्-पक्षिणः-अवतीति व्यवो-गरुडः, ताभ्यां सहस्थिती विष्णुः-थव्यवस्थितः, स नास्ति येषु तान् धार्तराष्ट्रान्- विवृतिः असुरान् ।**
+
+In the spiritual sense: The word "Atha-vyavasthitān" is a single compound. "Tha" means the vital breath (Prāṇa), as stated in the quote "tathau prāṇātmakau prokto". "Vya" means Garuḍa, (from the root) "vī" meaning bird, and (the word) "vyava" (implies) "he who protects (avatī)". He who is established (sthita) with these two (Prāṇa and Garuḍa) is Vishnu (Tha-vyava-sthitaḥ). Those in whom this (Vishnu) does not exist are the Dhārtarāṣṭras - this is the explanation - (they are) demons.
+
+**दृष्ट्वा, कपिध्वजः-कम्पयन्ति चेष्टयन्ति शरीरमिति कपयः-जीवाः, तेषां मध्ये ध्वजः-श्रेष्ठः "ध्वजःपूर्वदशा गृहे ॥ शिश्ने चिन्हे पताकायां खट्वांगे शौण्डकेऽपि चे" ति हैमः, मोक्षयोग्यत्वादुत्तमो जीवइत्यर्थः ।**
+
+Having seen; "Kapi-dhvajaḥ" - "Kapayaḥ" are the individual souls (jīvāḥ) which cause the body to move and stir; among them, "dhvajaḥ" means the best, (as per Hemachandra's dictionary) "dhvajaḥ means the first stage of a house, a mark on the penis, a banner, a staff, and also a drunkard"; the meaning is the supreme soul eligible for liberation.
+
+**शस्त्रसम्पाते-शस्त्रेणैव सम्पातः-पराजयरूपोयस्मिन्स्तस्मिन्वादरूपे युद्धे प्रवृत्त-आरब्धे सति ।**
+
+"Śastra-sampāte" - in that battle which is in the form of a debate, where "sampāta" (clash/fall) itself, meaning defeat, is by "śastra" (weapons/logical arguments), and which has commenced.
+
+**धनुः-प्रणवं "धनुर्हि तस्य प्रणवं पठन्ती" ति भागवते । उद्यम्य-उच्चार्य, सर्ववर्णानामादि-त्वात्; भाषणस्थ च वर्णमयत्वादिति भावः ॥**
+
+"Dhanuḥ" is the Praṇava (Om), (as in the Bhāgavata) "for his bow is the Praṇava, they recite". "Udyamya" - having uttered, because it is the beginning of all letters; the idea is that speech also consists of letters.
+
+**पाण्डोः-ज्ञानमयस्य विष्णोः प्रतिबिम्बः-पाण्डवः ।**
+
+"Pāṇḍavaḥ" is the reflection of Vishnu, who is full of knowledge.
+
+**हृषीकेशं-सर्वेन्द्रियाणां मुख्यप्रवर्तकंस्वबिम्बरूपं हरिं प्रति इदं वक्ष्यमाणमाह ।**
+
+To Hṛṣīkeśa - the director of all senses, who is of the nature of his own (Arjuna's) true self, he speaks this following statement to Hari.
+
+**हे महीपते-शरीराभिमानिन् जिज्ञासो ॥**
+
+O Lord of the Earth (Mahīpate) - O inquirer, you who identify with the body.
+
+**॥ अंशार्थे-धार्तराष्ट्रान्-पापरूपानसुरान्, कपिध्वजः-कम्पयति पृथिवीमिति कपिः ऐरावतः, तेन ध्वजति-गच्छतीति इन्द्रः "ध्वजगता विति” धातेः-पाण्डवः-पाण्डं-ज्ञानविषयं भगवन्तं, वाति-शरणं गच्छतीति स तथा हे महीपते? पूर्ववद्गन्धर्व ॥**
+
+In the sense of partial incarnation: "Dhārtarāṣṭrān" - demons in the form of sin. "Kapi-dhvajaḥ" - "Kapi" is Airāvata (Indra's elephant) who makes the earth tremble; "Indra" is he who goes (dhvajati) with it (as his banner), from the root "dhvaj" meaning "to go". "Pāṇḍavaḥ" - he who goes (vāti) for refuge to the Lord (Bhagavān), who is the object of knowledge (pāṇḍa). O Lord of the Earth? As before, (this refers to) the Gandharva.
+
+**हृषीकेशं तदा वाक्यमिदमाह महीपते ॥**
+
+Then, O Ruler of the Earth, he spoke this speech to Hṛṣīkeśa.
+
+**अर्जुन उवाच ।**
+
+Arjuna said:
+
+**सेनयोरुभयोर्मध्ये रथं स्थापय मेऽच्युत ॥ २१ ॥**
+
+Place my chariot between the two armies, O Acyuta.
+
+**प्रसिद्धार्थ।-अथ-शंखघोषानन्तरं, व्यवस्थितान्-व्यवस्थितयास्थितान्, धार्तराष्ट्रान्-दुर्योधनादीन्, दृष्ट्वा कपिध्वजः हनुमत्केतुरर्जुनः, शस्त्रसम्पाते-शस्त्रप्रहारे, प्रवृत्ते सति, पाण्डवः-पण्डुराजपुत्रः हृषीकेशं-कृष्णमिदमाह, हे महीपते-धृतराष्ट्र ॥ २० ॥**
+
+In the well-known sense: "Atha" - after the conch blast. "Vyavasthitān" - those standing in formation. "Dhārtarāṣṭrān" - Duryodhana and others. Having seen them, "Kapi-dhvajaḥ" - Arjuna, whose banner bears Hanumān. "Śastra-sampāte" - when the striking of weapons had commenced. "Pāṇḍavaḥ" - the son of King Pāṇḍu. He said this to "Hṛṣīkeśa" - Kṛṣṇa. O "Mahīpate" - Dhṛtarāṣṭra. (20)
+
+**रा० वि० तदा-शस्त्रसंपातप्राक्काले इदं-वक्ष्यमाणं सार्धश्लोकद्वयेन तद्वाक्यमाह ॥ सेनयोरिति ॥ २१ ॥**
+
+Then - just before the clash of weapons began. This - what is about to be said in the next two and a half verses. He spoke that speech. "Between the two armies..." (21)
+
+**त्रि० वि० ॥ ॥ सेनयोरिति ॥ ॥ अध्यात्मार्थे।-बिम्बस्य च्युतिरहितत्वे प्रतिबिम्बस्यापि युद्धात् च्युतिर्न भवेत् इत्यतो अच्युतेति सम्बुन्धिः । यावदेतान्-परान्, योद्धकामान्, अवस्थितान्, न तु कृतयुद्धारम्भान्, निरीक्षे, तावदेवोभयोः-सुरासुरपक्षीययोर्मध्ये, अन्तस्थितयोरिति शेषः ।**
+
+In the spiritual sense: Since the original (Bimba, the Supreme) is free from fall (cyuti), his reflection (the soul) also should not fall from (the state of) yoga; hence the address "O Acyuta". So that I may observe these enemies, who are desirous of battle and are stationed, but have not yet begun fighting. Precisely between the two - of the parties of the gods and demons; the remainder (of the phrase is) "stationed in the middle".
+
+**सेनयोः-सा-लक्ष्मीः इनः-तत्स्वामी, तयोः, "सपरोक्ष च सा लक्ष्मी" रित्येकाक्षरः, "इनः स्वामिनि सूर्ये चे" ति विश्वः । लक्ष्मीनारायणयोरित्यर्थः ।**
+
+Of the two armies - "Sā" means Lakṣmī (Prosperity). "Inaḥ" means her master. Thus, (the compound "senayoḥ" means) of those two, (as per the maxim) "saparokṣa ca sā lakṣmī" (the word 'sā' refers to Lakṣmī) which is a single syllable, and (the dictionary) Viśva says "inaḥ (means) master, sun, etc.". The meaning is (the two armies of) Lakṣmī and Nārāyaṇa.
+
+**रथं-ज्ञानं "रथगता” विति धातो-र्गत्यर्थानां च ज्ञाना-र्थत्वात् ॥**
+
+"Ratham" (chariot) means knowledge, because verbal roots meaning "to go", like "rath" in "rathagatā", also have the meaning of knowledge.
+
+**स्थापय-स्थिरीकुरु, तेषु युध्यमानेषु ममापि युद्धप्रसक्त्या श्रीशयोज्ञीनस्थित्ययोगादिति भावः ॥**
+
+"Place" - make firm/steady. The idea is that when they are engaged in fighting, I too, being drawn into the battle, would be unable to remain established in the knowledge of Lakṣmī and Nārāyaṇa (Prosperity and its Lord).
+
+**॥ अंशार्थे। हे अच्युत-च्युतं-च्यवनं येषामस्तीति "अर्शआद्यच्" प्रत्ययेन च्युताः युद्धप्रद्रुताः तद्विलक्षण भगवन्-उभयोः-सुरासुरपक्षसम्बन्धिन्योः सेनयोर्मध्ये मे रथं-शरीरं "शरीरं रथमेवचे" ति श्रुतेः, स्थापय-रक्ष "स्थितेः रक्षणार्थकत्वात, त्वया रक्षिते न भयं मम किंचिदिति भावः, इतीन्द्रोक्तिः ॥**
+
+In the sense of partial incarnation: O Acyuta - (whereas others are) "cyutāḥ" (fallen), meaning those for whom there is "cyutam" (fall), "cyavanam" (departure, using the "arśa-ādyac" suffix), i.e., those who have fled from battle, you are distinct from them, O Lord. "Between the two armies" - belonging to the sides of the gods and demons. "My chariot" - the body, as per the Vedic saying "the body is verily the chariot". "Place" - protect, because the root "sthā" (to stand/place) also has the meaning of protecting. The idea is that when protected by you, I have no fear whatsoever. This is the speech of Indra.
+
+**॥ प्रसिद्धार्थे। हे अच्युत-सारथेश्च्युतिरहितत्वे रथिनोपि युद्ध। च्युतिर्न भवतीत्यतोऽच्युते ति सम्बुद्धिः, हे कृष्ण, उभयोः कुरुपाण्डवपक्षसम्बन्धिन्योः सेनयोर्मध्ये मे रथं-स्यन्दनं स्थापय-निधेहि, यावत्-यावता रथस्थापनेन, एतान् योद्धुकामानवस्थितान्सर्वान्, अहं निरीक्षे तथा रथं स्थापयेत्यर्थः ॥**
+
+In the well-known sense: O Acyuta - since the charioteer is free from faltering, the chariot rider also does not falter in battle; hence the address "O Acyuta". O Kṛṣṇa, "between the two armies" - belonging to the Kaurava and Pāṇḍava factions. "My chariot" - the chariot. "Place" - position. "So that" - to the extent that by the positioning of the chariot, I may observe all these, who are desirous of fighting and are stationed. The meaning is: position the chariot in such a way.
+
+**यावदेतान्निरीक्षेऽहं योद्धुकामानवस्थितान् । कैर्मया सह योद्धव्यमस्मिन्त्रणसमुद्यमे ॥ २२ ॥**
+
+So that I may observe these, who are stationed and desirous of fighting. With whom must I fight in this battle preparation?
+
+**योत्स्यमानानवेक्षेऽहं य एतेऽत्र समागताः । धार्तराष्ट्रस्य दुर्बुद्धेर्युद्धे प्रियचिकीर्षवः ॥ २३ ॥**
+
+I wish to see those who have come here, who are about to fight, who are intent on pleasing the evil-minded son of Dhṛtarāṣṭra in battle.
+
+**यद्वा-यावत्, एतान्योद्धुकामानवस्थितान् नतु कृतयुद्धारम्भान्निरीक्षे तावद्रथं स्थापय-आरम्भे जाते यत्र तत्र युद्धप्रसक्त्या मध्ये रथस्थापनायोगादिति भावः ॥ २१ ॥**
+
+Or, "so that" - to the extent that I may observe these, who are desirous of fighting and are stationed, but have not yet begun fighting, "place the chariot" to that extent. The idea is that once the beginning (of battle) has occurred, due to the likelihood of fighting happening anywhere and everywhere, positioning the chariot in the middle would be unsuitable.
+
+**रा० वि० अस्मित्रणोद्योगे कैः सह मया योद्धव्यं ॥ २२ ॥**
+
+In this battle undertaking, with whom must I fight?
+
+**त्रि० वि० ॥ एवं सम्प्रार्थ्य पृच्छति ॥ कैरिति ॥**
+
+Having thus requested, he asks: "With whom..."
+
+**अस्मित्रणसमुद्यमे युद्धारम्भे मया कैः सह योद्ध-व्यम्, पक्षत्रयेऽप्ययमेवार्थः ॥ २२ ॥**
+
+"In this battle undertaking" - at the commencement of battle, "with whom must I fight?"; this is the meaning in all three interpretations.
+
+**रा० वि० दुर्बुद्धेर्धार्तराष्ट्रस्य प्रियं कर्तुमिच्छंतो येऽत्र समागतास्तान्योद्धुकामानवास्थतान्-योत्स्यमानान्यावद्रक्ष्यामि तावदुभयोः सेनयोर्मध्ये मे रथं स्थापयेत्याहेत्यर्थः ॥ २३ ॥**
+
+The meaning is that he says, "Place my chariot between the two armies so that I may see those who have come here, desirous of pleasing the evil-minded son of Dhṛtarāṣṭra, who are stationed, desirous of fighting, who are about to fight."
+
+**त्रि० वि० योत्स्यमानेन योद्धव्यमित्युत्तरमाशंक्य परिहरति ॥ योत्स्यमानानिति ॥**
+
+Anticipating the answer "You must fight with those who are about to fight," he counters (with this verse beginning with) "Those who are about to fight..."
+
+**अत्र-संग्रामे परपक्षे वा, ये समागताः तान्सर्वान्योत्स्यमानानेव-युद्धकर्तॄनेव अवेक्ष्ये-पश्यामि ।**
+
+"Here" - in this war, or on the enemy's side. "Who have come" - all of them. "Those who are about to fight" - precisely those who will be the agents of fighting. "I wish to see" - I will look at.
+
+**तस्मादादौ कैः सह योद्धव्यमित्यर्थः ।**
+
+Therefore, the meaning is, "With whom should one fight first?"
+
+**महामल्लभंगन्यायमाश्रित्य प्रबलैरथवा सूचीकटाहन्यायमाश्रित्य दुर्बलैः सहादौ योद्धव्यमिति प्रश्नाशयः ।**
+
+The intent of the question is whether one should fight first with the powerful, relying on the maxim of "breaking the great wrestler," or with the weak, relying on the maxim of the "needle and the iron vessel."
+
+**'प्रयोजनमनुद्दिश्य न मन्दोऽपि प्रवर्तते' इत्युक्तेः, सर्वराज्ञां त्वया सह युद्धेन किं फलमित्यत आह ॥**
+
+Because it is said, "Not even a fool acts without a purpose," therefore, he asks, "What is the benefit for all the kings in fighting with you?"
+
+**धार्तराष्ट्रस्येति ॥**
+
+(It is) for the sake of the son of Dhritarashtra.
+
+**धार्तराष्ट्रस्य-अधर्मस्य, कलेर्वा, दुर्योधनस्य वा प्रियसम्पादनमेव प्रयोजनमिति भावः ॥ २३ ॥**
+
+The meaning is that the purpose is merely to please the unrighteous son of Dhritarashtra, or Kalī (the personification of strife), or Duryodhana.
+
+**रा० वि० एवं गुडाकेशेन-गुडाकायाः-निद्रायाः ईशेन, जितनिद्रेणार्जुनेनोक्तो हृषीकेशः सर्वेंद्रियप्रेरकः श्रीकृष्णः बलद्वयमध्ये ॥ २४ ॥**
+
+(Ramanuja's commentary): Thus, addressed by Gudakesha (the lord of sleep, i.e., he who has conquered sleep), Arjuna, Hrishikesha (the lord of the senses), Sri Krishna, the director of all senses, (stationed) between the two armies...
+
+**त्रि० वि० एवमुक्तइति ॥ । अध्यात्मार्थे । गुडाकेशेन-गुडाका-निद्रा, तस्याः ईशेन, अधीननिद्रेणेत्यर्थः, त्यक्तनिद्रत्वात्स्वाभीष्टोद्योगिना, जीवेनेतियावत् ॥**
+
+(Triplicane Vedantacharya's commentary): ...Thus addressed. In the spiritual sense: By Gudakesha - Gudaka means sleep; its lord (Isha), meaning one who has subjugated sleep; because he has abandoned sleep due to being engaged in his desired pursuits, i.e., by the individual soul (Jiva).
+
+**एवं सेनयोरुभयोरित्याद्युक्तप्रकारेणोक्तो हृषीकेशः इन्द्रियनियन्ता बिम्बरूपो हरिः उभयोः सैन्ययोर्मध्ये स्थितयोः सेनयोः लक्ष्मीनारायणयोः, रथोत्तमं-अन्यविषयज्ञानोत्तमं ज्ञानं स्थापयित्वा-स्थिरीकृत्य उवाचेत्युत्तरेणान्वयः ॥**
+
+Thus addressed in the manner described by "of both armies," etc., Hrishikesha, the controller of the senses, Hari in his iconic form, stationed between the two armies—the two armies being Lakshmi and Narayana—having established/stabilified the excellent chariot (i.e., the supreme knowledge which is superior to knowledge of other objects), spoke. This connects with the subsequent verse.
+
+**अंशार्थे । -गुडाकेशेन-देवत्वेन त्यक्तनिद्रत्वादिन्द्रेणेत्यर्थः ॥**
+
+In the context of partial incarnation: By Gudakesha - meaning by Indra, because, due to his divine nature, he has abandoned sleep.
+
+**संजय उवाच ।**
+
+Sanjaya said:
+
+**एवमुक्तो हृषीकेशो गुडाकेशेन भारत ।**
+
+Thus addressed by Gudakesha (Arjuna), O Bharata,
+
+**सेनयोरुभयोर्मध्ये स्थापयित्वा रथोत्तमं ॥ २४ ॥**
+
+Hrishikesha (Krishna), having stationed the finest chariot between the two armies,
+
+**भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षितां ॥**
+
+In front of Bhishma and Drona and all the other kings,
+
+**उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ॥ २५ ॥**
+
+Said, "O Partha, behold these Kurus assembled together."
+

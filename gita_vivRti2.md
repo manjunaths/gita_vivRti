@@ -3160,3 +3160,91 @@ In front of Bhishma and Drona and all the other kings,
 
 Said, "O Partha, behold these Kurus assembled together."
 
+**तस्मादादौ कैः सह योद्धव्यमित्यर्थः ।**
+
+Therefore, the meaning is, "With whom should one fight first?"
+
+**महामल्लभंगन्यायमाश्रित्य प्रबलैरथवा सूचीकटाहन्यायमाश्रित्य दुर्बलैः सहादौ योद्धव्यमिति प्रश्नाशयः ।**
+
+The intent of the question is whether one should fight first with the powerful, relying on the maxim of "breaking the great wrestler," or with the weak, relying on the maxim of the "needle and the iron vessel."
+
+**'प्रयोजनमनुद्दिश्य न मन्दोऽपि प्रवर्तते' इत्युक्तेः, सर्वराज्ञां त्वया सह युद्धेन किं फलमित्यत आह ॥**
+
+Because it is said, "Not even a fool acts without a purpose," therefore, he says, "What is the purpose of all these kings fighting with you?"
+
+**धार्तराष्ट्रस्येति ॥**
+
+"Of the son of Dhritarashtra"...
+
+**॥ धार्तराष्ट्रस्य-अधर्मस्य, कलेर्वा, दुर्योधनस्य वा प्रियसम्पादनमेव प्रयोजनमिति भावः ॥ २३ ॥**
+
+The meaning is: the only purpose is to please the son of Dhritarashtra—the unrighteous one, Kali (the personification of strife), or Duryodhana.
+
+**रा० वि० एवं गुडाकेशेन-गुडाकायाः-निद्रायाः ईशेन, जितनिद्रेणार्जुनेनोक्तो हृषीकेशः सर्वेंद्रियप्रेरकः श्रीकृष्णः बलद्वयमध्ये ॥ २४ ॥**
+
+Thus spoken to by Gudakesha (the conqueror of sleep, Arjuna), Hrishikesha (the master of the senses, Lord Krishna), the mover of all senses, Sri Krishna, between the two armies...
+
+**त्रि० वि० एवमुक्तइति ॥ । अध्यात्मार्थे । गुडाकेशेन-गुडाका-निद्रा, तस्याः ईशेन, अधीननिद्रेणेत्यर्थः, त्यक्तनिद्रत्वात्स्वाभीष्टोद्योगिना, जीवेनेतियावत् ॥**
+
+Thus spoken to... In the spiritual sense: By Gudakesha—"Gudaka" means sleep, he is the master (Isha) of that, meaning one who has conquered sleep; or, because he has abandoned sleep due to being engaged in his desired pursuits, i.e., by the individual soul.
+
+**एवं सेनयोरुभयोरित्याद्युक्तप्रकारेणोक्तो हृषीकेशः इन्द्रियनियन्ता बिम्बरूपो हरिः उभयोः सैन्ययोर्मध्ये स्थितयोः सेनयोः लक्ष्मीनारायणयोः, रथोत्तमं-अन्यविषयज्ञानोत्तमं ज्ञानं स्थापयित्वा-स्थिरीकृत्य उवाचेत्युत्तरेणान्वयः ॥**
+
+Thus addressed in the manner described by "between the two armies," Hrishikesha, the controller of the senses, the Lord in his manifest form, having steadied the excellent chariot—the supreme knowledge which is superior to knowledge of other objects—spoke. This connects with the subsequent verse.
+
+**॥ अंशार्थे । -गुडाकेशेन-देवत्वेन त्यक्तनिद्रत्वादिन्द्रेणेत्यर्थः ।**
+
+In the sense of a portion (of the divine): By Gudakesha—meaning by Indra, who, due to his divine nature, has abandoned sleep.
+
+**संजय उवाच ।**
+
+Sanjaya said:
+
+**एवमुक्तो हृषीकेशो गुडाकेशेन भारत ।**
+
+Thus addressed by Gudakesha, O Bharata,
+
+**सेनयोरुभयोर्मध्ये स्थापयित्वा रथोत्तमं ॥ २४ ॥**
+
+Hrishikesha, having stationed the finest chariot between the two armies,
+
+**भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षितां ॥**
+
+In front of Bhishma and Drona and all the lords of the earth,
+
+**उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ॥ २५ ॥**
+
+Said, "O Partha, behold these Kurus gathered together."
+
+**उभयोः सेनयोर्मध्ये स्थितस्येति शेषः तस्य-इन्द्रस्य रथोत्तमं मनुष्यशरीरोत्तमं शरीरं स्थापयित्वा-पालयित्वा ॥**
+
+This is the remainder (of the description): of Him (Krishna/Indra) who was situated between the two armies. Having established/protected the excellent chariot, the supreme human body.
+
+**॥ प्रसिद्धार्थे ॥ गुडाकेशेन-अर्जुनेन, हृषीकेशः कृष्णः, रथोत्तमं विजयरथं, स्थापयित्वा निधाय ॥ २४ ॥**
+
+In the well-known meaning: By Gudakesha—Arjuna; Hrishikesha—Krishna; the excellent chariot—the chariot of victory; having stationed it, having placed it.
+
+**रा०वि० भीष्मद्रोणप्रमुखतः तदाभिमुख्येन तथा सर्वेषां महीक्षितां-राज्ञां प्रमुखत इति बुद्ध्या विविक्तेनान्वयः ।**
+
+In front of Bhishma and Drona—facing them; and similarly, the phrase "in front of all the lords of the earth" is to be connected intellectually by separating them (i.e., understanding it as a separate phrase).
+
+**रथं स्थापयित्वा हे पार्थ समवेतान्-युद्धार्थ मिलितानेतान् कुरून्पश्येत्युवाचेति ॥ २५ ॥**
+
+Having stationed the chariot, he said, "O Partha, behold these Kurus gathered—assembled for battle."
+
+**त्रि० वि० एवं प्रार्थितं कृत्वा प्रश्नोत्तरमाह ॥ भीष्मेति ॥**
+
+Having thus made the request, he states the answer to the question...
+
+**अध्यात्मार्थे ॥**
+
+In the spiritual sense:
+
+**॥ "तसेः सार्वविभक्तिकत्वात्" भीष्मद्रोणप्रमुखानां-क्रोधकामाभिमान्यानां सर्वेषामसुराणामित्यर्थः ॥**
+
+"Because the case endings apply to all (in the compound)", it means of all the demons, whose leaders are Bhishma and Drona—meaning those who identify with anger and desire.
+
+**यद्वा-भोष्मद्रोणप्रमुखतः क्रोधकामसन्मुखे, च शब्दः प्रमुखशब्दानुकर्षणार्थः ।**
+
+Alternatively, "in front of Bhishma and Drona" means facing anger and desire; and the word "cha" (and) is used to extend the meaning of the word "pramukhatah" (in front of).
+

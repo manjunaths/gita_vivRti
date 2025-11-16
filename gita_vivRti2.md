@@ -3248,3 +3248,447 @@ In the spiritual sense:
 
 Alternatively, "in front of Bhishma and Drona" means facing anger and desire; and the word "cha" (and) is used to extend the meaning of the word "pramukhatah" (in front of).
 
+**मद्दीक्षितां-महीं महाजनतां क्षिण्वन्ति ये तेषां सर्वेषां च प्रमुखे स्थापयित्वेति पूर्वेणान्वयः ।**
+
+The connection with the previous (verse) is: having placed at their head all those who oppress the great earth consecrated by Me, and the great people.
+
+**हे पार्थ-पातीति पो-विष्णुः तस्यार्थो यस्येति सम्बुद्धिः, हे जीवेत्यर्थः ।**
+
+"O Pārtha-pāti" means 'po', which is Vishnu; its meaning is 'whose', this is a vocative case, meaning "O Jīva (Soul)".
+
+**एतान्-अग्रस्थान्, समवेतान्-मिलितान्कुरून्-कुत्सितं रुवन्ति-भाषन्ते तान्"रु शब्दे" तानसुरान् पश्य ।**
+
+See these, positioned in the front, assembled - united, the Kurus - who speak vilely - they speak, those ("ru" in the sense of sound) those demons.
+
+**नात्रेकोप्ययोध्यइति भावः ।**
+
+The idea is that not a single one here is to be fought.
+
+**इत्युवाच ॥   ॥ अंशार्थे।-भीष्मद्रोणप्रमुखतः युवसुगुर्वादीनां सर्वेषां च महीक्षिता-स्वमहिम्नैवेक्षिता-साक्षी, अं-ब्रह्मरूपः "अम्भवेत्परमं ब्रह्मे" त्येकाक्षरः, तादृशो हरिः ।**
+
+Thus he spoke. Partial meaning: The witness of the earth (or kings) beginning with Bhīṣma and Droṇa, and of all the youths, elders, etc., through His own glory, 'aṃ' - of the nature of Brahman ("aṃ should be the supreme Brahman"), the one-syllabled (Om), such a Hari.
+
+**हे पार्थ इन्द्र, एतान्-दृश्यमानान् समवेतान् कुरून-पापामिमानिनोऽसुरान् पश्येत्युवाच ॥   ॥ प्रसिद्धार्थे ॥**
+
+O Pārtha (son of Pṛthā), see these visible, assembled Kurus - these sinners, the proud demons, thus he spoke. In the well-known meaning.
+
+**हे कौन्तेय एतान्कुरून्-कुरुवीरान, समवेतान्-आविष्टानसुरैरिति शेषः, पश्य, अतः सर्वेपि योद्धव्या इति भावः ॥**
+
+O Kaunteya (son of Kuntī), see these Kurus - these Kuru heroes, assembled - possessed by demons, this is the implied meaning; therefore, all are to be fought, this is the idea.
+
+**यद्वा-एतान् कुरून् पश्य । तत्रापि अपररूपत्वादेतान् इति एकारप्रश्लेषः ॥**
+
+Alternatively, see these Kurus. There too, due to their other form, there is a pun on the word 'these' (etān).
+
+**अं-विष्णुं । इतान्-शरणागतान् समव-सम्यग्रक्षेत्यर्थः ।**
+
+'aṃ' - Vishnu. 'itān' - those who have come for shelter, 'samava' - protect completely, this is the meaning.
+
+**सं-सम्यक्त्वेन एतान् मया निर्दिष्टान्, अवेति वा ।**
+
+'saṃ' - these indicated by Me with completeness, 'ava' - or (protect).
+
+**यद्वा । सं-विष्णुं "अ क य प्र वि सं भूम सख हा विष्णुवाचका" इत्यभिधानं ॥**
+
+Alternatively, 'saṃ' - Vishnu, as stated in the dictionary "a, ka, ya, pra, vi, saṃ are synonyms for Vishnu".
+
+**इतान्-शरणं प्राप्तान्, अव-रक्ष, हे पार्थप-पस्य-विष्णोः अर्थं-कामितं पातीति तथाविध अर्जुन? एतान् कुरून्-कुत्सितभाषिणः, श्य-जहि ।**
+
+'itān' - those who have attained shelter, 'ava' - protect, O Arjuna, who are you, the protector of the desired object of Vishnu? 'etān' these Kurus - vile speakers, 'śya' - slay.
+
+**तत्रापश्यत्स्थितान्पार्थः पितॄनथ पितामहान् ।**
+
+There, Pārtha saw stationed his fathers and then his grandfathers.
+
+**आचार्यान्मातुलान् भादृन्पुत्रान्पौत्रान्सखींस्तथा ॥ २६ ॥**
+
+Teachers, maternal uncles, brothers, sons, grandsons, and friends as well.
+
+**इदं "कैर्मया सह योद्धव्य" मित्यस्योत्तरं ज्ञेयम् ॥ २५ ॥**
+
+This should be understood as the answer to (the question) "With whom must I fight?"
+
+**रा० वि० पार्थः "अवृद्धाभ्योनदीमानुषीभ्यस्तन्नामिकाभ्य" इत्यण् ।**
+
+(Rāma Varma): Pārtha - (the word is formed) by the suffix 'aṇ' (as per the rule) "avṛddhābhyonadīmānuṣībhyastannāmikābhya".
+
+**तत्रेत्यस्य विवरणं सेनयोरुभयोरपीति ।**
+
+The explanation of 'tatra' (there) is 'in both armies'.
+
+**तथेति समुच्चये ॥ २६ ॥**
+
+' tathā' (as well) is for conjunction.
+
+**त्रि० वि० अथ भगवदाज्ञानुसारिणीं तत्प्रवृत्तिमाह ॥**
+
+(Trivikrama): Then, he describes his (Arjuna's) activity following the command of the Bhagavān.
+
+**तत्रेति ॥ ॥ अध्यात्मार्थ ॥**
+
+"There..." Spiritual meaning:
+
+**पार्थः-जीवः, तत्र तदा सेनयोर्वा, स्थितान् पितॄन्-बसून् पितामहान-रुद्रान्,**
+
+Pārtha - the individual soul, there, then, in the two armies, the stationed 'fathers' - the Vasus, the 'grandfathers' - the Rudras,
+
+**अथ शब्देन प्रपितामहान् आदित्यान्, "वसवः पितरो ज्ञेया रुद्राश्चैव पिता-महाः । प्रपितामहास्तथाऽऽदित्याः श्रुतिरेषा पुरातनी"ति मन्वादिस्मृतौ ॥**
+
+then, by the word 'atha', the great-grandfathers - the Ādityas, as stated in the ancient scripture cited in the Smṛtis of Manu etc.: "The Vasus are to be known as the fathers, the Rudras indeed as the grandfathers, and the Ādityas as the great-grandfathers."
+
+**यद्वा।-पिष्टन-कर्माभिमानिनः पुष्करादीन्, "कर्मणा जायते जन्तु" रित्युक्तेः, "शेषेणेमं लोकं व्रजति" इति श्रुतेश्च, "पुष्करः कर्मपोऽपि" इत्युक्तेश्च ।**
+
+Alternatively, the presiding deities of action like Puṣkara, because it is said "The creature is born through karma", and from the Śruti "He goes to this world with the remainder (of karma)", and because it is said "Puṣkara is also Karmapa (the lord of karma)".
+
+**पितामहान् वेदान् "कर्म ब्रह्मोद्भवं विद्धि" इत्युक्तेः ।**
+
+The 'grandfathers' are the Vedas, because it is said "Know that karma originates from Brahman."
+
+**आचार्यान्न-सदसच्छास्त्रकर्तृन्, मातुलान-अविद्याख्यमातुर्षन्धुरूपान मोहादीन्, भ्रातृन् मृत्य्यादीन् 'मृत्युर्जन्मवतां बीर देहेन सह जायते" त्युक्तेः तदभिमानिनो यमादीन् ।**
+
+Teachers - the authors of the scriptures (which declare) "sat" (real) and "asat" (unreal); maternal uncles - the brothers of the mother named Avidyā (Ignorance), i.e., Delusion (Moha) and others; brothers - Death and others ("O hero, death is born with the body for those who are born"), and their presiding deities like Yama.
+
+**यद्वा-मनआदीन् "आत्मैव ह्यात्मनोबन्धु" रित्युक्तेः, पुत्रान्-रोगादीन्, तदभिमानिनो-देवानसुरांश्च "स्वदेहजोप्यामयवत्सुतोहि सः" इत्युक्तेः ।**
+
+Alternatively, the mind and others ("For the self alone is the friend of the self"); sons - diseases and others, and their presiding deities, both gods and demons ("For he is like a son, a disease born from one's own body").
+
+**पौत्रान्-व्यथाभिमानिनः, "रोगजन्यां व्यथां जयेदि"त्युक्तेः ।**
+
+Grandsons - the presiding deities of pains ("One should conquer the pain born from disease").
+
+**यद्वा-पुत्रान्-विषयबुद्धौ जातान् मनोवृत्तिरूपान्, पौत्रान्-तज्जातान् वृत्यन्तररूपान् "तस्यामजनयत्पुत्रान्पुरञ्जन्यां पुरञ्जनः । शतान्येकादश-विवृतिःविराडिति" भागवते ।**
+
+Alternatively, sons - the modifications of the mind born in the intellect directed towards sense objects; grandsons - those born from them, in the form of other modifications, as in the Bhāgavata: "In her (the intellect named Puranjani), Puranjana (the Jiva) begot sons... the eleven and the hundred...", and so on.
+
+**"पुत्राणां च भवन्पुत्रा एकैकस्यां शतं शत" मिति च ।**
+
+"And the sons of the sons became hundreds in each (generation)."
+
+**सखीन्-अविज्ञातार्दान, "योऽविज्ञाताव्यस्तस्य पुरुषस्यसर्वेश्वर" इत्यादेः, श्वशुरान् "बुद्धिन्तु प्रमदां विद्यादि"ति भागवतोक्त्या सुबुद्धिदुर्बुद्धिरूपस्त्रीपितरः तत्वदर्शिनोमायिनश्च "उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिन" इत्युक्तेः ।**
+
+Friends - the senses which are not properly discerned ("For the person whose senses are not discerned..."); fathers-in-law - according to the Bhāgavata statement "One should know the intellect as a woman", the fathers of the women in the form of good intellect (Subuddhi) and bad intellect (Durbuddhi), i.e., the seers of reality and the illusory magicians ("The knowers, the seers of truth, will instruct you in knowledge").
+
+**"मायिनश्चान्यथाज्ञानं स्वशिष्येभ्योऽदिशन्कला" वित्युक्तेश्च सुहृदः सुमनसः, हितेच्छवइतियावत्, उभयोः सुरासुरयोः, सेनयोरपि ।**
+
+And because it is said "And the magicians (Māyins) instructed their disciples differently, O Kala"; well-wishers - those with good minds, meaning those who desire one's welfare, in both the armies of the gods and the demons.
+
+**चशब्दाद्यथासम्भवमेवेत्यर्थः ॥ ॥ अंशार्थे ।-पार्थः-पो-विष्णुः-तमुपेन्द्रत्वेन अर्थयति ।**
+
+The word 'ca' (and) implies 'as is appropriate'. Partial meaning: Pārtha - 'po' is Vishnu; he (Arjuna) requests Him (Krishna) in His form as Upendra (Vāmana).
+
+**श्वशुरान्सुहृदश्चैव सेनयोरुभयोरपि ।**
+
+And fathers-in-law and well-wishers indeed, in both armies.
+
+**तान्समीक्ष्य सकौंतेयः सर्वान्बन्धूनवस्थितान् ॥ २७ ॥**
+
+Having seen them, O son of Kuntī, all the kinsmen stationed (there).
+
+**कामयति सतथा इन्द्रः, पितॄन्, रुद्रादीन, पितामहान् ब्रह्मादीन्, अथशब्देन प्रपितामहान् निरन्नत्वाद्विष्णुः "अनश्नन्नन्य" इति श्रुतेः-"यस्मादन्नं थमुच्यते"इति कौर्म्ये च ।**
+
+Indra (Arjuna) desires thus: fathers - the Rudras and others; grandfathers - Brahmā and others; by the word 'atha' (then), great-grandfathers - because of being without food, Vishnu ("He who eats not, yet others..."), and in the Kaurma (Purana) ("From whom food is said to be...").
+
+**आचार्यान्-बृहस्पत्यादीन्, मातुलान्-आकूतिसूनुयज्ञादीन् यज्ञस्य च इंन्द्रमातृमातृष्वस्त्रेयत्वात्, तस्यैवोपेन्द्रत्वात्, मार्तॄन्-सूर्यादीन्, पौत्रान्-जयन्तसुतादीन्, सखीन्, प्रवीरादीन्, श्वशुरान्-पुलोमादीन्, सुहृदः-स्वसम्बन्धिनः जयन्तश्वशु-वज्रनाभादीन् ॥**
+
+Teachers - Bṛhaspati and others; maternal uncles - the sons of Akūti, Yajña and others, and because the sacrifice (Yajña) has Indra as his maternal uncle, and because he himself is Upendra; the Mātṛs (mothers) - Sūrya and others; grandsons - the sons of Jayanta and others; friends - the heroes and others; fathers-in-law - Puloma and others; well-wishers - his own relatives, the fathers-in-law of Jayanta, Vajranābha and others.
+
+**॥ प्रसिद्धार्थे।-पार्थः-कौन्तेयोऽर्जुनः, पितृन्-भूरिश्रवआदीनू, पितामहान्-भीष्मसोमदत्तादीन्, अथशब्देन प्रपितामहान् बाल्हीकादीन्, आचार्यान्द्रोणादीन्, मातुलान्-शल्यशकुन्यादीन्, भ्रार्तॄन्-युधिष्ठिरदुर्योधनादीन्, पुत्रान्-सौभद्रादीन्. पौत्रान्घटोत्कचपुत्रादीन्, सखीन्-कृष्णाश्वथ्यामादीन्, श्वशुरान् द्रुपदादीन्, सुहृदः-विराटादीन्, उभयोः-कुरुपाण्डवयोः ॥ २६ ॥**
+
+In the well-known meaning: Pārtha - Arjuna, the son of Kuntī; fathers - Bhūriśravas and others; grandfathers - Bhīṣma, Somadatta and others; by the word 'atha' (then), great-grandfathers - Bāhlīka and others; teachers - Droṇa and others; maternal uncles - Śalya, Śakuni and others; brothers - Yudhiṣṭhira, Duryodhana and others; sons - Abhimanyu (son of Subhadrā) and others; grandsons - the sons of Ghaṭotkaca and others; friends - Kṛṣṇa, Aśvatthāmā and others; fathers-in-law - Drupada and others; well-wishers - Virāṭa and others; of both - the Kurus and Pāṇḍavas.
+
+**रा० वि० तानवस्थितान्सर्वान् बंधून्समीक्ष्यैवेत्येवकारेणान्वयः ॥ २७ ॥**
+
+(Rāma Varma): The connection is through the word 'eva' (indeed): having seen indeed all those kinsmen stationed (there).
+
+**अथ ममताभिमान्यसुरांविष्टोजीवः आत्मात्मीयाद्विड्वधं भगवतइष्टमपि अधर्मत्वेन मन्यमान आहेत्याइ ॥**
+
+Then, the soul, possessed by the demon of possessiveness, considering the killing of kinsmen, though desired by the Lord, as adharma, spoke thus.
+
+**तानिति ॥**
+
+"them..."
+
+**॥ कौन्तेयः-कुं-भूमि देहं वा तनोति-विस्तारयतीति कुन्तिः-विष्णुः तस्यायं प्रतिबिम्बत्वात्कौन्तेयः जीवः, इन्द्रः, अर्जुनोवा ।**
+
+Kaunteya: 'ku' - the earth or the body, that which expands (tanoti) is Kunti - Vishnu; because he (Arjuna) is a reflection of him, he is Kaunteya - the soul, Indra, or Arjuna.
+
+**अवस्थितान्-युद्धभूमिस्थितान्, तान्-पित्रादीन्, सर्वान्बन्धून्-स्वाप्तान्समीक्ष्य,**
+
+Having seen them stationed - standing on the battlefield, them - starting with the fathers, all the kinsmen - one's own people,
+
+**अपरया-न परः-परकीय; यस्यां तया ममतारूपयेत्यर्थः, कृपया तदभिमान्यसुरेणेति यावत् ।**
+
+with 'aparayā' - not that which is of another (para); meaning, with that which is in the form of possessiveness, or rather, with pity, which is a demon assuming that identity.
+
+**आविष्टः, विषीदन्-खेदं प्राप्नुवन् सन् इदं वक्ष्यमाणमब्रवीत् ॥ २७ ॥**
+
+Possessed, sorrowful - obtaining grief, he spoke this (which is) about to be said.
+
+**रा० वि० विषीदन्विषादं कुर्वन् ।**
+
+(Rāma Varma): 'Viṣīdan' - making sorrow.
+
+**विषादो नाम मोहनिमित्तकाच्छोकाद्यन्मनोदौर्बल्यं यस्मिन्स्तस्मिन्सति सर्वव्यापारोपरमो भवति स इति ज्ञेयं ।**
+
+Sorrow (viṣāda) is known as that weakness of mind caused by delusion, etc., such as grief, upon the occurrence of which all activity ceases.
+
+**इदमब्रवीदित्युक्तमर्जुनवाक्यमाह ॥**
+
+'idam abravīt' - thus the speech of Arjuna is stated.
+
+**दृष्ट्वेत्यादिना आध्यायसमाप्ति ॥**
+
+The chapter ends with 'dṛṣṭvetyādinā' (with "having seen" etc.).
+
+**हे कृष्ण-सकललोककर्षक ।**
+
+O Krishna - attractor of all worlds.
+
+**तदुक्तं गीताभाष्ये पंचमाध्याये ।**
+
+As stated in the Gītā Bhāṣya, fifth chapter.
+
+**"नियमनादिना सकललोककर्षणात्कृष्शः ।**
+
+"From the attracting of all worlds by controlling, etc., (He is) Krishna."
+
+**तच्चोक्तं । "यतः कर्षसि देवेश नियम्य सकलं जगत् । मतो वदन्ति मुनयः कृष्णं त्वां ब्रह्मवादिन" इति महाकीमें"त्युक्तेः ।**
+
+And it is said: "Because you attract, O Lord of lords, having controlled the entire universe, therefore the sages, the knowers of Brahman, call you Krishna," as stated in the Mahākīrtana.
+
+**युयुत्सुं-योद्धुमिच्छंतं सम्यगवस्थितमिमं-बंधुजनं दृष्ट्वा ॥ २८ ॥**
+
+Having seen this assemblage of kinsmen, desirous to fight (yuyutsuṃ), standing in formation.
+
+**कृपया परयाऽऽविष्टो विषीदन्निदमब्रवीत् ॥**
+
+Possessed by excessive pity, sorrowful, he spoke this.
+
+**अर्जुन उवाच ।**
+
+Arjuna said.
+
+**दृष्ट्वेमं स्वजनं कृष्णयुयुत्सुं समुपस्थितं ॥**
+
+Having seen this own people, O Krishna, assembled and desirous to fight.
+
+**॥ २८ ॥ सीदन्ति मम गात्राणि मुखं च परिशुष्यति ।**
+
+My limbs are giving way, and my mouth is drying up.
+
+**वेपथुश्च शरीरे मे रोमहर्षश्च जायते ॥ २९ ॥**
+
+And a tremor is in my body, and horripilation occurs.
+
+**त्रि० वि० ॥ दृष्ट्वेति ॥**
+
+(Trivikrama): "Having seen..."
+
+**॥ इमं-पित्रादिरूपं स्वजनं, युयुत्सुं-योद्धुकामं ।**
+
+This - own people in the form of fathers, etc., desirous to fight (yuyutsuṃ) - wishing to fight.
+
+**यद्वा । युयुत्सुं धार्तराष्ट्रं वेश्यासुतम्, समुपस्थितं-परपक्षादस्मान्प्राप्तं च दृष्ट्वा-अयं केवलं स्वीयममताहीनः इति चित्रं दृष्ट्वा इत्यर्थः ।**
+
+Or, having seen the son of Dhṛtarāṣṭra (Duryodhana), the son of a Vaiśya woman, desirous to fight, and arrived - having come to us from the opposing side; the meaning is having seen this wonder, that he is solely our own, devoid of possessiveness.
+
+**मम गात्राणि-अंगानि, सीदन्ति-स्वस्वव्यापारासमर्थानि भवन्ति मुखं च शुष्कं भवतीत्यर्थः ॥ २८ ॥**
+
+My limbs - the body parts, are giving way (sīdanti) - become incapable of their respective functions; and the mouth becomes dry, this is the meaning.
+
+**रा०वि० मम गात्राणि-हस्ताद्यवयवाः सीदंति-विशीर्यते ।**
+
+(Rāma Varma): My limbs - the parts like hands, etc., are giving way - are being destroyed.
+
+**"षद्द्धविशरणगत्यव-सादनेष्वि" ति धातोः ।**
+
+From the root "ṣad" meaning to be destroyed, to perish, to go, to wither, to be dejected.
+
+**मुखे म्लानता च जायते शरीरे कंपो रोमांचश्च जायते इति ॥ २९ ॥**
+
+Languor arises in the face, and a tremor arises in the body, and horripilation arises.
+
+**त्रि० वि० वेपथुश्चेति ॥**
+
+(Trivikrama): "And a tremor..."
+
+**वेपथुः-कम्पः, रोमहर्षः रोमाञ्चोद्भवो भवति ॥**
+
+A tremor (vepathuḥ) - shaking; horripilation (romaharṣaḥ) - the arising of goosebumps occurs.
+
+Of course. Here is the line-by-line translation of the provided Sanskrit text, formatted as you requested.
+
+**अध्यात्मार्थे ॥**
+
+**(In the spiritual sense:)**
+
+**गाण्डीवं-गाण्डी-अ उ मे ति त्रयाणां ग्रन्थिः सोऽस्यास्तीति गाण्डी वं प्रणवः "कृवृकादितिवाङीप्" मतुबर्थे वः, हस्तात्-हस्तः-शुण्डादण्डः सोऽस्यास्तीति हस्तः-गणपतिः "अर्शआद्यच्" अभिमान्यमन्यमानयोरैक्यव्यपदेशात्, आकाशोऽनेन लक्ष्यते, हृदाकाशादित्यर्थः, सते-गच्छति, चित्ताकाशे प्रणवस्थैर्याभावेन तद्विचारहीनोऽस्मीतिभावः ॥**
+
+(In the spiritual sense: "Gāṇḍīva" is the Pranava (Om), because it is that which has the knot (granthi) of the three (syllables A, U, M - 'gaṇḍī-a-u-me'). According to the rule "kṛvṛkāditiveṅīp" (a grammatical rule), the suffix 'va' is used in the sense of 'matup' (possessing). "Hasta" is Ganapati (the lord of hosts), because he is that which has a hand (hasta) or a trunk (śuṇḍā), which is like a hand. According to the rule "arśa-ādyac" (another grammatical rule), there is a designation of unity between the one who is proud (abhimānin) and the one who considers (manyamāna). By this (Pranava), the Ākāśa (space) is indicated, meaning the space of the heart (hṛdākāśa). "Sṛjate" means "goes". The idea is "I am devoid of that inquiry due to the lack of steadiness of the Pranava in the space of the mind (cittākāśa).")
+
+**अंशार्थे।-गाण्डीवं-धनुः "जिष्णोर्धनुषि कोदण्डे गाण्डीवं गाण्डिवं तथे"ति शाश्वतः "कोदण्डोधनुर्मात्रेऽपीति" भानुजीदीक्षितः ॥**
+
+(In the partial sense: "Gāṇḍīva" is the bow. Śāśvata says: "In the context of Arjuna's bow, the words 'Gāṇḍīva' and 'Gāṇḍiva' are used." Bhanujī Dīkṣita says: "The word 'Kodaṇḍa' means simply a bow.")
+
+**प्रसिद्धार्थे ॥ गाण्डीवं-मद्धनुः त्वक्च परिदह्यते-सन्तप्यत एव ॥ २९ ॥**
+
+(In the well-known sense: "Gāṇḍīva" is my bow. "Paridahyate" means "is burning, is greatly afflicted.")
+
+**रा०वि० धनुर्हस्तात्पतत्ति ।**
+
+(Rāmānuja Vijaya: The bow is slipping from my hand.)
+
+**त्वक्च परितस्तप्यत एव अवस्थातुं च न शक्नोमि ।**
+
+(And my skin is burning all over, and I am unable to remain steady.)
+
+**मनश्च मे भ्रमतीव च ॥ ३० ॥**
+
+(And my mind is, as it were, whirling.)
+
+**त्रि० वि० नचेति ॥ अवस्थातुं-युद्धे वीरासनेन व्यवस्थातुं नैव शक्नोमि ।**
+
+(Trivikrama Vijaya: "I am unable" - I am completely unable to remain in a steady posture for battle, such as the Vīrāsana.)
+
+**मे मनश्च भ्रमतीव-वध्येषु अवध्यत्वेन पश्यति, इमे वध्याअवध्यावेति संशयं इव शब्देन दर्शयति, "किंचित्वे चोभयत्वे च संशये सदृशे तथा । इव शब्दः प्रयुज्येत न्यक्कारेऽपि च पण्डितै"रिति शब्दनिर्णये ॥**
+
+("And my mind is, as it were, whirling" - it sees those who should be killed as not to be killed; the word "iva" (as it were) indicates this doubt, "Are these to be killed or not to be killed?" As stated in the Śabdanirṇaya: "The word 'iva' is used by the wise for a little, for both, in doubt, for similarity, and also for disparagement.")
+
+**ननु हन्तुं शक्याशक्यत्वरूपसंशयस्तु सुशकुनरूपविशेषदर्शनेन परिहार्यइत्यत आह ॥ निमित्तानीति ॥ स्वस्य सव्यसाचित्वेन वामांगस्फुरणादेः सुशकुनत्वेऽपि ममतासुरावेशवशाद्विपरीतानेवामन्यतेति भावः ॥ ३० ॥**
+
+(Objection: But the doubt regarding who can and cannot be killed can be resolved by observing specific good omens. Anticipating this, he says: "Nimittāni" (omens). The meaning is that although, due to his being Savyasācin (ambidextrous), the throbbing of his left side etc. are actually good omens, because he is possessed by the demon of attachment (mamatā), he considers them to be adverse.)
+
+**गाण्डीवं संस्रते हस्तात्त्वक चैव परिदह्यते ।**
+
+My bow, Gāṇḍīva, is slipping from my hand, and my skin is burning all over.
+
+**न च शक्नोम्यवस्थातुं भ्रमतीव च मे मनः ॥३०॥**
+
+And I am unable to remain steady; and my mind is, as it were, whirling.
+
+**निमित्तानि च पश्यामि विपरीतानि केशव ।**
+
+And I see adverse omens, O Keśava.
+
+**न च श्रेयोऽनुपश्यामि हत्वा स्वजनमाहवे ॥ ३१ ॥**
+
+And I do not foresee any good from killing my kinsmen in battle.
+
+**रा० वि० विपरीतानि निमित्तानि दुर्निमित्तानि च पश्यामि ।**
+
+(Rāmānuja Vijaya: I see adverse omens, inauspicious signs.)
+
+**केशव-ब्रह्मरुद्रप्रवर्तक । कश्च ईशश्च केशौ तौ सृष्ट्यादिना वर्तयतीति व्युत्पत्तेः । केशपदोपपदात् "वृतुवर्तन" इत्यतोंऽतर्णीतण्याड्डप्रत्यये रूपसिद्धेः । उक्तं हि स्थितप्रज्ञस्य का भाषेत्येतद्भाष्ये । "हिरण्यगर्भः कः प्रोक्त ईशः शंकर एव च । सृष्टयादिना वर्तयति तौ यतः केशवो भवान्" इति ॥**
+
+("Keśava" - The director of Brahmā and Rudra. Etymology: "Ka" and "Īśa" are "Keśa" (the two hairs?/a name for Brahmā and Śiva); He who sets them in motion through creation etc. The form is derived because 'Keśa' is the base, and from the root 'vṛt' (to exist, to turn) with the suffix 'ḍa'. It is indeed stated in the commentary on "What is the speech of one of steady wisdom?": " 'Ka' is proclaimed as Hiraṇyagarbha (Brahmā) and 'Īśa' is Śaṅkara (Śiva). Because you set them in motion through creation etc., you are Keśava.")
+
+**युद्धेन श्रेयो लभ्यत इत्यत आह । नचेति । श्रेयश्च न पश्यामि । आइवे-युद्धे ॥ ३१ ॥**
+
+(Thinking) that good (śreyaḥ) is obtained through battle, he says "na ca" (and not). And I do not see any good. "Āhave" means "in battle".
+
+**त्रि०वि० "हतो वा प्राप्स्यसि स्वर्ग जित्वा वा भोक्ष्यसे महीमि" ति वक्ष्यमाणदिशा उभयथाऽपि श्रेयः प्राप्ति किं नांगीकुरुषे इत्यत आह ॥ नचश्रेय इति ।। पारत्रिकं श्रेयोऽदृश्यत्वादनंगीकार्यं, महीभोगादिरूपं दृश्यं श्रेयस्तु आहवे-युद्धे स्वजनं हत्वा नैवानुपश्यामि ।॥**
+
+(Trivikrama Vijaya: According to what will be said later - "Slain, you will obtain heaven; victorious, you will enjoy the earth" - why do you not accept that good is attained in both ways? Anticipating this, he says "na ca śreyaḥ" (and no good). The otherworldly good (pāratrikaṃ śreyaḥ) is not to be accepted because it is unseen. And as for the visible good, like the enjoyment of the earth, I do not see it at all from killing my kinsmen in battle.)
+
+Of course. Here is the line-by-line translation of the provided Sanskrit text, formatted as you requested.
+
+**राज्यस्य स्वजनपोषणैकफलत्वादिति भावः ॥ ३१ ॥**
+
+The implied meaning is that the sole purpose of a kingdom is the nurturing of one's kinsmen.
+
+**रा० वि० विजयादिकं फलं नेच्छामि ॥ ३२ ॥**
+
+(Rāmānuja Vijaya:) I do not desire victory, etc. (as a fruit).
+
+**त्रि० वि० ननु स्वजनरूपशत्रुत्वधं विना विजयस्ते कथं स्यादित्यत आह ।। न कांक्ष इति ।**
+
+(Trivikrama Vijaya:) Now, (one might object) how can there be victory for you without destroying the enemies who are in the form of your kinsmen? Anticipating this, he says, "na kāṅkṣe" (I do not desire).
+
+**तद्विना राज्यानुपलम्भइत्यत आह ॥ नचराज्यमिति ॥**
+
+(One might say) without that (victory), a kingdom cannot be obtained. Anticipating this, he says, "na ca rājyam" (nor a kingdom).
+
+**तर्हि सुखरूपफलानाकांक्षायां अन्यफलाभावाच्च राज्यफलमाक्षिपति ॥ किं न इति ॥**
+
+Then, since there is no desire for pleasure as a fruit and there is an absence of any other fruit, he questions the fruit of kingship (by asking) "kiṃ no" (what to us).
+
+**भोगाः फलमिति चेत्तत्राह ।। किं भोगैरिति ।।**
+
+If one says that enjoyments are the fruit, he says in response, "kiṃ bhogaiḥ" (what with enjoyments).
+
+**अन्यथा जीवनानुपपत्तिरित्यत आह ।। जीवितेनवेति ।।**
+
+(One might say) otherwise, living is not possible. Anticipating this, he says, "jīvitena vā" (or with life).
+
+**वा शब्दः, किं शब्दानुकर्षणार्थः ।। ३२ ॥**
+
+The word "vā" (or) is used to extend the force of the word "kiṃ" (what).
+
+**रा०वि० येषामर्थे-प्रयोजननिमित्तं राज्याद्यपेक्षितं नः-अस्माकं तइमे-बांधवाः प्राणान्धनानि च त्यक्त्वा युद्धे अवस्थिताः ॥ ३३ ॥**
+
+(Rāmānuja Vijaya:) For whose sake - for the purpose and reason - kingdom etc. were desired by us, those very kinsmen, having abandoned their lives and wealth, are stationed for battle.
+
+**त्रि० वि० ॥ " न च श्रेयोनुपश्यामि हत्वा स्वजनमाहवे" इत्युक्तं स्पष्टयति ॥ येषामर्थइति ॥**
+
+(Trivikrama Vijaya:) He elaborates on what was said, "nor do I foresee any good from killing my kinsmen in battle."
+
+**नः-अस्माकं, येषामर्थ-यत्कृते राज्यादि कांक्षितम् ।**
+
+"Naḥ" means "by us". "Yeṣām artha" means "for whose sake" kingdom etc. was desired.
+
+**अत्र कांक्षितशब्दस्य लिंगवचनविपरिणामेनोभयत्रान्वयः ॥**
+
+Here, the word "kāṅkṣitam" (desired) is connected to both (parts of the sentence) by a change in its gender and number.
+
+**न कांक्षे विजयं कृष्ण न च राज्यं सुखानि च ।**
+
+O Kṛṣṇa, I do not desire victory, nor a kingdom, nor pleasures.
+
+**किं नो राज्येन गोविंद किं भोगैजर्जीवितेन वा ॥ ३२ ॥**
+
+What is a kingdom to us, O Govinda? What are enjoyments, or even life itself?
+
+**येषामर्थे कांक्षितं नो राज्यं भोगाः सुखानि च ।**
+
+For whose sake we desired a kingdom, enjoyments, and pleasures,
+
+**त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ॥ ३३ ॥**
+
+Those very men are stationed here for battle, having abandoned their lives and their wealth.
+
+**आचार्याः पितरः पुत्रास्तथैव च पितामहाः ।**
+
+Preceptors, fathers, sons, and likewise grandfathers,
+
+**मातुलाः श्वशुराः पौत्राः श्यालाः संबंधिनस्तथा ॥ ३४ ॥**
+
+Maternal uncles, fathers-in-law, grandsons, brothers-in-law, and also other relatives.
+
+**यद्वा।-एषामर्थे-आचार्यादिभ्यः युद्धेन राज्यं नाहर्तव्यं किन्तु तेषामर्थएव त्याज्यं, स्वयं नाकांक्ष्यामित्यर्थे, राज्यादि नोकाक्षितं-न कांक्षितम्, तइमे-सर्वे युद्धे-युद्धविषयें अवस्थिताः ।**
+
+Alternatively: For the sake of these - for the preceptors, etc. - the kingdom should not be taken by battle; on the contrary, for their sake alone it should be relinquished, meaning I myself should not desire it. Kingdom etc. was not desired by us. Those very men, all of them, are stationed for battle - in the matter of battle.
+
+**किं कृत्वेत्यतः, प्राणान् लक्षणया प्राणाशाशाः त्यक्त्वा ।**
+
+How (are they stationed)? Having abandoned their lives - by implication, the hopes for their lives.
+
+**अस्तु प्राणाशापरित्यागः तथापि "यं क्रीणात्यसुभिः प्रेष्ठैस्तस्करः सेवक वणिगि"त्युक्तदिशा धनार्थे युद्धेव स्थानं स्यादित्यत उक्तम् ॥ धनानि चेति ॥**
+
+Granted that they have abandoned the hope for their lives, even then, as stated in the saying, "For whom a thief, a servant, or a merchant purchases (something) with their dear lives," they might still be stationed in battle for the sake of wealth. That is why it is said:
+
+**धनानि चेति ॥ धनानि त्व त्यक्त्वा तस्मात्तेषां निष्फलप्रवृत्याऽज्ञत्वं पश्यता प्रेक्षावता मया तादृशी प्रवृत्तिर्न कार्येति भावः ॥ ३३ ॥**
+
+"and their wealth." Having abandoned their wealth as well. Therefore, the meaning is that I, who am discerning and who see their foolishness in engaging in a fruitless endeavor, should not undertake such an action.
+
+**रा० वि० ते के इत्यत आह ॥ ॥ आचार्या इति ॥ नैवेच्छामीत्येवकारान्वयः ॥ ३४ ॥**
+
+(Rāmānuja Vijaya:) Who are "they"? To explain this, he says: "ācāryāḥ" (preceptors, etc.). The word "eva" (indeed) from "naiva icchāmi" (I do not desire at all) is connected here.
+
+**त्रि० वि० ॥ ते कइत्यआह ॥ आचार्या इति ॥ एते प्रोक्तार्था एव ॥**
+
+(Trivikrama Vijaya:) He says, who are "they"? (He says) "ācāryāḥ" etc. These are the very people mentioned before.
+
+**अत्र सखिस्थाने झ्यालशब्दोक्तेः, सुभद्राबन्धुत्वात्तदर्थः कृष्णएवेति प्रसिद्धार्थे ॥**
+
+Here, the word "śyālāḥ" (brothers-in-law) is mentioned in the place of a friend; since Kṛṣṇa is the brother of Subhadrā, the meaning of that word is Kṛṣṇa himself, in the well-known sense.
+
